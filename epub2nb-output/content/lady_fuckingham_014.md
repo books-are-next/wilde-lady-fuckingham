@@ -3,12 +3,9 @@ title: ''
 ---
 
   
-
   
-
   
-
-Musím se nyní vrátit ke svému poměru s Lothairem. Slíbil mi, že se znovu setkáme za týden, a nemohla jsem se dočkat, až uslyším všechny zajímavosti o jeho cestě do Richmondu.
+  
 
 Obědvali jsme znovu v hotelu Bristol a byl stejně rozohněný a impulzivní jako tenkrát, ovšem tentokrát k tomu nebylo třeba afrodiziakum. „Ach, Beatrice,“ řekl, když jsme vysílení leželi na sofa po celé sérii lahodných styků, „nedokážu ani z půli vyjádřit všechen vděk a oddanost, kterou k tobě cítím za to, že jsi mě tak nesobecky postoupila těm dvěma jeptiškám, i když jsi mě sama mohla učinit víc než šťastným. Ale první mi vyprávěj o tom vašem Společenství lásky, kterému jsi slíbila mě představit, a pak budeš moct vyslechnout vyprávění o mém dobrodružství.“
 
@@ -64,7 +61,7 @@ Nedokážu vlastně ani říct, jak to všechno dopadlo, protože to nebralo kon
 
 Slíbil jsem jim, že se neožením, a vyslovil jsem své přání, aby mě do svaté církve přijal sám svatý otec brzy po Vánocích, když budu na návštěvě v Římě. Tak získám spoustu času k provozování své hry. Dokážu jezuitům, že se dokážu vyrovnat lstem, které na mě zkoušeli, když jsem byl ještě mladý neznalý chlapec na návštěvě ve Vauxe. Mohu milovat Clare, když na to nemyslím, ale pokaždé, když na to jen vzpomenu, začnu ji se vším všudy nenávidět.“
 
-Náš čas ve městě již byl skoro u konce, a tak na můj popud zorganizovali Bertram a St. Aldegonde urychleně Lothairovu iniciaci do Venušina kruhu.
+  
 
 Stále jsme byli v Cercy House, ovšem tentokrát se obřad konal pod záštitou malé soukromé slavnosti u vévody z Breconu, kde jsme opustili naše kočáry a vyjeli v kočárech Jeho Výsosti na výlet do přírody, který samozřejmě nevedl dál než do Cheyene Walk. Všechno bylo připraveno na Lothairovu iniciaci a rychle jsme se převlékali do šatů, které pro nás stvořila matka příroda. Losovali se partneři pro první tanec, já si vytáhla vévodu z Breconu a Alice Lothaira, zatímco lady Corisande se usadila u piana, odkud svou bravurní hrou doprovázela náš neřestný tanec, při kterém pánové při výměně partnerek uštědřovali vypouklým dámským zadečkům štiplavé facky, na které dámy odpovídaly plácáním po jejich ztopořených penisech. Všechny jsme byly během chvíle tak vzrušené a rozdováděné, že jsme měly co dělat, abychom se udržely, když nás Lothair obcházel dokola a líbal naše chvějící se kundičky.
 
@@ -110,71 +107,71 @@ Alice mezitím sundala ubohého Lothaira z koně, který se do ní, k jejímu 
 
 Můj partner si mě přehodil přes koleno a jal se rozštípávat můj holý zadek hlasitými ranami. Křičela jsem a bránila se, co mi síly stačily, až konečně jsem lapila a zakroutila jeho zduřelou kládou a ukázala mu, že tahle bolestivá hra se dá hrát i ve dvou. Okamžitě prosil o příměří a já se rychle narovnala, nasedla mu zadkem do klína a jeho pták se zarazil hluboko do mých vnitřností. Objal mě rukama tak, aby v každé dlani třímal jedno mé prso, a prsty mi masíroval bradavky, zatímco jsem se vozila nahoru a dolů po jeho stožáru. Zaklonila jsem hlavu, abych opětovala jeho polibky, a naše jazyky se setkaly. Byla to úžasná pozice a jeho dávky, které mu tekly po stehnech a úplně vytápěly jeho pubické ochlupení, do mě stříkaly s nevídanou silou.
 
-St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svých manželek. Ani jeden z nich ovšem nevěnoval pozornost jejich zejícím kundičkám, neboť se oba oddávali šukání jejich zadnic, což si obě dámy s potěšením užívaly. Celou tu dráždivou scénu doplňovala drahá Corisande na piano všem známou melodií. Byla to píseň Každej to dělá.
+St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svých manželek. Ani jeden z nich ovšem nevěnoval pozornost jejich zejícím kundičkám, neboť se oba oddávali šukání jejich zadnic, což si obě dámy s potěšením užívaly. Celou tu dráždivou scénu doplňovala drahá Corisande na piano všem známou melodií. Byla to píseň _Každej to dělá_.
 
-Dělá to šlechtic a dělá to chuďas,  
-dělá to smíšek, dělá to pruďas.  
-Černý, bílý,  
-drzý, slušný,  
-autokrat i lid venkovský.
+> Dělá to šlechtic a dělá to chuďas,  
+> dělá to smíšek, dělá to pruďas.  
+> Černý, bílý,  
+> drzý, slušný,  
+> autokrat i lid venkovský.
 
-Každej to dělá — pilně jak včela,  
-žebrák i fešná fiflena.  
-Ti co byli, ti co jsou —  
-a ti, co přijdou, též budou.
+> Každej to dělá — pilně jak včela,  
+> žebrák i fešná fiflena.  
+> Ti co byli, ti co jsou —  
+> a ti, co přijdou, též budou.
 
-Starý to zkoušej,  
-mladý to dělaj.  
-Slepí, chromí,  
-prudcí, krotcí,  
-v krajích chladných nebo teplých.  
-Každej to dělá, et cetera.
+> Starý to zkoušej,  
+> mladý to dělaj.  
+> Slepí, chromí,  
+> prudcí, krotcí,  
+> v krajích chladných nebo teplých.  
+> Každej to dělá, et cetera.
 
-Dělaj to ti, co jsou v právu,  
-i ti s cenou na svou hlavu.  
-Také jeptiška a kněz,  
-se rádi nechaj svést,  
-když jen objeví se chvíle vhodná.  
-Každej to dělá, et cetera.
+> Dělaj to ti, co jsou v právu,  
+> i ti s cenou na svou hlavu.  
+> Také jeptiška a kněz,  
+> se rádi nechaj svést,  
+> když jen objeví se chvíle vhodná.  
+> Každej to dělá, et cetera.
 
-Dělá to slimák i všichni brouci,  
-holubi i lovní ptáci.  
-Kočky, psi,  
-myši i krysy,  
-sloni i velryby, přeci.  
-Každej to dělá, et cetera.
+> Dělá to slimák i všichni brouci,  
+> holubi i lovní ptáci.  
+> Kočky, psi,  
+> myši i krysy,  
+> sloni i velryby, přeci.  
+> Každej to dělá, et cetera.
 
-Dělá to kohout se slepicí,  
-červenky i kolibříci.  
-Medvěd grizzly  
-s medvědicí,  
-ropuchy v bahně za vesnicí.  
-Každej to dělá, et cetera.
+> Dělá to kohout se slepicí,  
+> červenky i kolibříci.  
+> Medvěd grizzly  
+> s medvědicí,  
+> ropuchy v bahně za vesnicí.  
+> Každej to dělá, et cetera.
 
-Dělá to divočák i klokan,  
-kukačka i zpěvný skřivan.  
-Vrabec v křoví,  
-v polích zajíc,  
-ve smečkách i v hustých rojích.  
-Každej to dělá, et cetera.
+> Dělá to divočák i klokan,  
+> kukačka i zpěvný skřivan.  
+> Vrabec v křoví,  
+> v polích zajíc,  
+> ve smečkách i v hustých rojích.  
+> Každej to dělá, et cetera.
 
-Dělá to komár, veš i včela,  
-od rána až do večera.  
-I žížaly v díře  
-a červi v sýře  
-to dělaj jako vzteklý zvíře.  
-Každej to dělá, et cetera.
+> Dělá to komár, veš i včela,  
+> od rána až do večera.  
+> I žížaly v díře  
+> a červi v sýře  
+> to dělaj jako vzteklý zvíře.  
+> Každej to dělá, et cetera.
 
-Král to dělá s královnama,  
-sultán, paša s huriskama.  
-I španělský don má k tomu sklon,  
-po celém světě je po tom shon.
+> Král to dělá s královnama,  
+> sultán, paša s huriskama.  
+> I španělský don má k tomu sklon,  
+> po celém světě je po tom shon.
 
-Každej to dělá, každej to dělá,  
-šlechtic i ta nejmenší hnida.  
-S korunou král,  
-i hovnivál  
-to dělá a dělat bude dál!
+> Každej to dělá, každej to dělá,  
+> šlechtic i ta nejmenší hnida.  
+> S korunou král,  
+> i hovnivál  
+> to dělá a dělat bude dál!
 
 Její průzračný melodický hlas se rozléhal salonem, a když přišlo na refrén, všichni se rozverně přidali. Nikdy předtím jsem nezažila tak vzrušivé a dekadentní výjevy jako ty, kterými jsem v tu chvíli byla obklopena. Když nás k naší nelibosti donutily poslední orgasmické výstřiky ukončit naše angažmá, nastoupili jsme, po chvilce odpočinku, zpět do kočárů a vyjeli k vévodovu sídlu, jako bychom toho odpoledne nic zvláštního než vyjížďku nezažili.
 
@@ -254,7 +251,7 @@ Největší zájem vzbuzovala Bertha s Charlesem, jelikož všichni ostatní by
 
 Konečně to bylo za námi. „A teď,“ řekla lady Bertha, „si odpočineme a nabereme alespoň trochu sil, abychom se pak mohli plně soustředit na Fanny a Bridget a řádně je připravili o panenství. Zatím vám budu vyprávět o jednom dobrodružství, které jsem zažila v Brenthamu pár měsíců po své svatbě.“
 
-Asi víte, že St. Aldegonde chtěl zastupovat svou zemi v parlamentu a volby měly být již brzy, dokonce se povídalo, že rozpuštění parlamentu bylo přímo na spadnutí, takže jsme nesměli ztrácet čas. Náš plán bylo získat na svoji stranu jednoho movitého velkostatkáře, s jehož podporou už by bylo vše ostatní procházka růžovým sadem. Byl to jeden z mých dávných obdivovatelů a byl velmi zklamaný, když se dozvěděl o mém sňatku s Jeho Výsostí, a tak jsme si byli víc než jisti, že bude na truc všemi prostředky podporovat naši opozici. Jedné noci jsme se připravovali na kutě po naprosto skvostné mrdačce (je to krásné, když jste čerstvě oddaní), když mě najednou rozesmála jedna má skvělá myšlenka.
+  
 
 St. Aldegonde byl celý nedočkavý, na co že jsem přišla, a tak jsem ho políbila a řekla: „Miláčku, (dnes už to dělám, jen když ho potřebuji k něčemu přemluvit) dokázal by ses zříct části mé kundičky, aby sis zajistil místo v parlamentu?“ „Nejdražší Bertho,“ řekl, „v tuhle chvíli by mě nedonutilo žárlit vážně nic na světě, protože jsi právě vysála poslední kapičku mrdky z mého ptáka,“ zívl a pak si uvědomil, oč zde běží. „Máš na mysli pana Stiffingtona, drahoušku? To je skvělý nápad a zatraceně levný způsob, jak ho dostat na naši stranu. Nehledě na to, že kundu mu žádný soud jako úplatek neuzná.“
 
@@ -284,7 +281,7 @@ Podívala jsem se zasmušile na zem a odpověděla skoro neslyšitelným hlásk
 
 „Drahá Bertho,“ vykřikl vzrušeně, „slyším dobře, že byste raději byla dala přednost mně? Copak nemáte slitování nad mou ne­opětovanou láskou? To se kvůli mně ani maličko neusmějete, když vám hledím do tváře?“ Jal se vášnivě líbat mou ruku. „Mohu vašeho manžela podporovat, ovšem, ovšem za malou úplatu. Musím si rozmyslet, co po vás budu žádat, drahoušku. Vaše panenství už mi ukradl, ale beztak vás musím mít! Nic ho to stát nebude a nikdo se o tom nemusí dozvědět.“ Začínal být velmi neodbytný. Jednu ruku měl kolem mého pasu a můj brunátný obličej pokrýval horlivými polibky. Jeho druhá ruka zatím cestovala po mých prsou a pak stehnech, a zatímco mě přes šaty osahával, donutil mě, abych nahmatala jeho ztopořený penis, který právě vypustil z kalhot. Už jen pouhý dotek mnou prohnal vzrušivé brnění a padla jsem na znak v předstíraném bezvědomí.
 
-V tu chvíli hbitě vyskočil, zamkl dveře, pak ze šuplíku vytáhl malou knížku a jakousi krabičku, poklekl vedle mě, nadzvedl mi šaty, začal mi líbat nohy od chodidel až po mé kalhotky, roztáhl mi stehna, což mi v kalhotkách rozevřelo kundičku a kochal se tím dechberoucím výhledem. „Máte tak přenádhernou pipinku, překrásně jemnou a mistrně tvarovanou,“ zašeptal a přitiskl rty na mou mons veneris. Pak jsem ucítila, jak jeho prsty šetrně rozevírají mé pysky, aby mohl políbit můj malý knoflíček lásky. Bylo to tak vzrušující, že jsem to nevydržela, zarazila mu hlavu hluboko mezi svá stehna a udělala jsem se mu přes celý jazyk s hlubokým a slastným vzdechem. „Je má! Tolik se jí to líbí! Stačilo se jí jen dotknout jazykem a byla hned hotová!“
+V tu chvíli hbitě vyskočil, zamkl dveře, pak ze šuplíku vytáhl malou knížku a jakousi krabičku, poklekl vedle mě, nadzvedl mi šaty, začal mi líbat nohy od chodidel až po mé kalhotky, roztáhl mi stehna, což mi v kalhotkách rozevřelo kundičku a kochal se tím dechberoucím výhledem. „Máte tak přenádhernou pipinku, překrásně jemnou a mistrně tvarovanou,“ zašeptal a přitiskl rty na mou _mons veneris_. Pak jsem ucítila, jak jeho prsty šetrně rozevírají mé pysky, aby mohl políbit můj malý knoflíček lásky. Bylo to tak vzrušující, že jsem to nevydržela, zarazila mu hlavu hluboko mezi svá stehna a udělala jsem se mu přes celý jazyk s hlubokým a slastným vzdechem. „Je má! Tolik se jí to líbí! Stačilo se jí jen dotknout jazykem a byla hned hotová!“
 
 „Podívej drahoušku,“ vzpřímil se a pokračoval, „myslel jsem, že pár nevinných polibků tvé svatyňky tě postaví zase na nohy, ale nemíním si tě přivlastnit celou. Tahle knížka ti ukáže cestu k dokonalé blaženosti a osvětlí ti zákoutí slasti, o kterých se ti dosud ani nesnilo.“
 
@@ -292,7 +289,7 @@ V tu chvíli hbitě vyskočil, zamkl dveře, pak ze šuplíku vytáhl malou kn�
 
 Má mise tedy byla úspěšná a Jeho Lordstvo se stalo členem parlamentu.
 
-Historka lady Berthy nás všechny tak vzrušovala, že jsme se nemohli udržet a vzájemně jsme si pohrávali s našimi intimními partiemi. Ovšem jen co byl příběh u konce, popadli jsme Fanny a Bridget a… Ale je mi jasné, že číst si dokola o tom samém může být někdy mírně únavné, a proto jen letmo zmíním, že John a Charles připravili dívky o panenství ve velkolepém stylu, jelikož obě děvčata brzy pochopila, že jim již žádné další výmluvy nebudou tolerovány.
+  
 
 To bylo mé poslední dobrodružství ve městě. V další části se soustředím na události po svatbě s lordem Crim-Conem, ke které došlo brzy poté.
 
@@ -530,7 +527,7 @@ Hraběnka předstírala únavu (bylo nám jasné, proč tolik spěchá na lože)
 
 Robert měl ve zvyku před spaním ještě obcházet přízemí domu a kontrolovat, zdali je vše dobře zabezpečené, a tak do pokoje vešla první hraběnka a okamžitě se začala svlékat.
 
-Byla asi stejného věku jako její manžel, nesmírně hezká, vyšší dáma světlých zlatohnědých vlasů, hlubokých modrých očí, našpulených třešňových rtíků a perleťových zubů. Jak se postupně svlékala, odhalovala více a více svých svůdných půvabů. Krev mi vzrušením z pohledu na ni vařila. Její ohromná kyprá prsa byla stále zakulacená a pevná, a když si přetáhla košilku přes hlavu, odhalila své bělostné bříško bez jediné vrásky (všech devět porodů bylo naprosto bezproblémových a své děti odmítala kojit, neboť by jí to zničilo postavu) a svou zarostlou mons veneris, pokrytou jemnými kudrnatými rezavými chloupky, skrz které prosvítal obrys její štěrbinky.
+Byla asi stejného věku jako její manžel, nesmírně hezká, vyšší dáma světlých zlatohnědých vlasů, hlubokých modrých očí, našpulených třešňových rtíků a perleťových zubů. Jak se postupně svlékala, odhalovala více a více svých svůdných půvabů. Krev mi vzrušením z pohledu na ni vařila. Její ohromná kyprá prsa byla stále zakulacená a pevná, a když si přetáhla košilku přes hlavu, odhalila své bělostné bříško bez jediné vrásky (všech devět porodů bylo naprosto bezproblémových a své děti odmítala kojit, neboť by jí to zničilo postavu) a svou zarostlou _mons veneris_, pokrytou jemnými kudrnatými rezavými chloupky, skrz které prosvítal obrys její štěrbinky.
 
 Postavila se před velké zrcadlo a začala se prohlížet. Měla jsem pocit, že se dokonce z pohledu na své tělo stydlivě začervenala, pak se ale její třešňové rty roztáhly ve spokojený úsměv a obnažily její perleťové zoubky, zatímco se poplácávala po bocích a po břiše (očividně si již představovala Robertovu nadšenou reakci, až ji zde takto nalezne). Hravě roztáhla pysky své pičky a jala se ji důkladně zkoumat v zrcadle. Doteky prstů v ní vyvolaly další stydlivé zrudnutí, ale nedokázala odolat a začala nedočkavě přejíždět bříškem ukazováku tam a zpátky po svých ruměných rtech lásky.
 
@@ -548,7 +545,7 @@ Vrhl se do jejího náručí, začali se mazlit a líbat, zatímco se chopila j
 
 „To jsou mi ale odporné řeči! To se nikdy nestane, Roberte! Nic takového mi dělat nebudeš!“ vykřikla a zrudla studem až po kořínky vlasů.
 
-„Ale já musím a také tak učiním, Cecilko! Podívej se třeba tady na tuhle knížku, je tam spousta rozličných způsobů, jak ‚to dělat‘. Koukej, tady si to třeba dělají navzájem pusou a tady už šoustají – ach, ten vulgární výraz tě děsí – ale to je přesně to, co dělají. Šoustají, tak se tomu říká: mrdání-šoustání-prcání. Mrdají se do zadků, do podpaždí, mezi kozy, to je další hrubý výraz pro ňadra, kamkoliv-kdekoliv. Pro muže to všechno vyjde nastejno, všechno, čemu říkají KUNDA, nepochybuji o tom, že jsi na to slovo již někdy narazila. Bývá napsané na dveřích, okenicích nebo i na chodnících. Nádherně vulgární slovo, Cecilko. Na co myslíš, že si v pánské společnosti připíjejí všichni muži? Celou tu dobu, co jsi byla pryč, jsem netoužil po ničem jiném!“ (Viděla jsem, jak se ji snaží donutit pohlédnout na stránky malé francouzské knížky s názvem La Science Pratique.)
+„Ale já musím a také tak učiním, Cecilko! Podívej se třeba tady na tuhle knížku, je tam spousta rozličných způsobů, jak ‚to dělat‘. Koukej, tady si to třeba dělají navzájem pusou a tady už šoustají – ach, ten vulgární výraz tě děsí – ale to je přesně to, co dělají. Šoustají, tak se tomu říká: mrdání-šoustání-prcání. Mrdají se do zadků, do podpaždí, mezi kozy, to je další hrubý výraz pro ňadra, kamkoliv-kdekoliv. Pro muže to všechno vyjde nastejno, všechno, čemu říkají KUNDA, nepochybuji o tom, že jsi na to slovo již někdy narazila. Bývá napsané na dveřích, okenicích nebo i na chodnících. Nádherně vulgární slovo, Cecilko. Na co myslíš, že si v pánské společnosti připíjejí všichni muži? Celou tu dobu, co jsi byla pryč, jsem netoužil po ničem jiném!“ (Viděla jsem, jak se ji snaží donutit pohlédnout na stránky malé francouzské knížky s názvem _La Science Pratique_.)
 
 „Roberte, ty ses dočista zbláznil! Tu odpornou knihu okamžitě spálím, nebudu se učit jejich oplzlým způsobům!“ a vytrhla mu knížku z ruky.
 
@@ -570,7 +567,7 @@ Jen co se mu ji povedlo po chvíli konečně vzkřísit, prohlásil, že od teď
 
 „Ne, ne! Něco tak odporného dělat nebudu, vždyť sis ho ještě ani neumyl poté, cos ho vytáhnul z mého zneuctěného zadku!“ vzlykala a její oči přetékaly slzami, jelikož v jeho obličeji nenacházela ani špetku soucitu.
 
-„A co je mi do toho? Když řeknu kuř, tak budeš kouřit, tak dělej, drahoušku, a odpusť si ty úšklebky, jenom mě rozesmívají. Teď si s tebou konečně budu dělat, co chci. Byl jsem od svatby až do teď takový hlupák, když jsem neuplatňoval své právo si s tebou, tvojí kundou, prdelí nebo kozama dělat, co se mi jen zamane. Můžeš mi přece poskytnout tolik rozkoše bez hrozby dalších potomků. Takže do práce a já tě zatím budu mrdat velkým dildem. Nezapomeň spolykat každou kapičku mé mrdky, až začnu stříkat.“
+„A co je mi do toho? Když řeknu _kuř_, tak budeš kouřit, tak dělej, drahoušku, a odpusť si ty úšklebky, jenom mě rozesmívají. Teď si s tebou konečně budu dělat, co chci. Byl jsem od svatby až do teď takový hlupák, když jsem neuplatňoval své právo si s tebou, tvojí kundou, prdelí nebo kozama dělat, co se mi jen zamane. Můžeš mi přece poskytnout tolik rozkoše bez hrozby dalších potomků. Takže do práce a já tě zatím budu mrdat velkým dildem. Nezapomeň spolykat každou kapičku mé mrdky, až začnu stříkat.“
 
 Vrazil jí slizkou špinavou kládu mezi neochotné rty, pak vytáhl ohromné dildo, které měřilo snad víc než dvanáct palců a bylo širší než sevřená pěst, pomazal ho vazelínou a začal ho pomalu zasouvat do její vylekané kundy.
 
@@ -636,65 +633,65 @@ Po dvou až třech skleničkách měly oči otevřené dokořán. I ten nejmen�
 
 „Teď poslouchejte příběh o hrnčíři a ne abyste se smály, dokud celá báseň neskončí. Možná vám bude připadat trošku přidrzlá, ale není to nic, o čem by velké holky, jako vy, neměly vědět.“ A pak jsem začala:
 
-Mladý Hodge byl velký šibal,  
-povoláním hrnčíř.  
-Zamiloval se do Patty Price,  
-služky farářovy.
+> Mladý Hodge byl velký šibal,  
+> povoláním hrnčíř.  
+> Zamiloval se do Patty Price,  
+> služky farářovy.
 
-Tenhle Hodge měl pořád plné ruce  
-svých hrnců, džbánů, pánví.  
-Říkával: „Smutný osud má  
-muž, který nemá ženy.
+> Tenhle Hodge měl pořád plné ruce  
+> svých hrnců, džbánů, pánví.  
+> Říkával: „Smutný osud má  
+> muž, který nemá ženy.
 
-Brzy si vezmu Patty Price  
-do svého útulného domku.  
-Sám farář totiž oddá nás,  
-budem chcát do stejného hrnku.“
+> Brzy si vezmu Patty Price  
+> do svého útulného domku.  
+> Sám farář totiž oddá nás,  
+> budem chcát do stejného hrnku.“
 
-Hodge pěkný hrnek udělal  
-a přines’ ho svý lásce.  
-Řek’: „Chtěl jsem ti ho ukázat,  
-teda říct, že miluji tě.
+> Hodge pěkný hrnek udělal  
+> a přines’ ho svý lásce.  
+> Řek’: „Chtěl jsem ti ho ukázat,  
+> teda říct, že miluji tě.
 
-Teď jmenuj den, ten šťastný den,  
-jehož noc přinese mi rozkoš.  
-Kdy tvá kunda a můj čůrák v něm  
-konečně smísí svou horkou moč.“
+> Teď jmenuj den, ten šťastný den,  
+> jehož noc přinese mi rozkoš.  
+> Kdy tvá kunda a můj čůrák v něm  
+> konečně smísí svou horkou moč.“
 
-Svoji byli již do týdne  
-a Hodge měl velké štěstí,  
-že hned při prvním šoustání,  
-protrh’ blanku panenství.
+> Svoji byli již do týdne  
+> a Hodge měl velké štěstí,  
+> že hned při prvním šoustání,  
+> protrh’ blanku panenství.
 
-Pak usnul v jejím náručí,  
-však probudil se náhle.  
-A posadil se na posteli  
-zděšením bílý nenadále.
+> Pak usnul v jejím náručí,  
+> však probudil se náhle.  
+> A posadil se na posteli  
+> zděšením bílý nenadále.
 
-„Ach, lásko! Lásko! Měl jsem sen,  
-sen, který poděsil mě zjevně.  
-Oba jsme stáli v mé dílně  
-a já objímal tě pevně.
+> „Ach, lásko! Lásko! Měl jsem sen,  
+> sen, který poděsil mě zjevně.  
+> Oba jsme stáli v mé dílně  
+> a já objímal tě pevně.
 
-Pak líbal jsem tě na tváře,  
-na rukou svých tě nosil.  
-Až všechny své jsem hrníčky  
-na malé kousky rozbil.“
+> Pak líbal jsem tě na tváře,  
+> na rukou svých tě nosil.  
+> Až všechny své jsem hrníčky  
+> na malé kousky rozbil.“
 
-Patty se jen zasmála:  
-„Žádné hrnce prasklé nejsou.  
-Jen rozmrdalsʼ mi na kusy  
-blanku mou panenskou.“
+> Patty se jen zasmála:  
+> „Žádné hrnce prasklé nejsou.  
+> Jen rozmrdalsʼ mi na kusy  
+> blanku mou panenskou.“
 
-A od těch dob až dodnes,  
-Hodge prasklinu jí ucpává  
-ptákem větším než cihla,  
-však prasklina jí puká dál.
+> A od těch dob až dodnes,  
+> Hodge prasklinu jí ucpává  
+> ptákem větším než cihla,  
+> však prasklina jí puká dál.
 
-A tak si služky odevšad,  
-dávejte pozor na své nádobí.  
-Neboť co protrhne mužný pyj,  
-už se vám nikdy znovu nezhojí.
+> A tak si služky odevšad,  
+> dávejte pozor na své nádobí.  
+> Neboť co protrhne mužný pyj,  
+> už se vám nikdy znovu nezhojí.
 
 Zahodila jsem rukopis a dřív, než bys řekl švec, jsem měla prst v kundičce každé z nich. „Jaké překrásné nádobí to obě máte! Musím si vás položit na postel a uštědřit jim polibek. Co si myslíte o mém nádobí, pokrytém jemným kudrnatým mechem? Je to sice prasklá pánev, ale s tím už nic nenadělám, když mi ji můj manžel rozbil.“
 
@@ -718,52 +715,52 @@ Zatlačila jsem na ni, a konečně se jí rozvázal jazyk: „Zrovna jsme čeka
 
 Na melodii – Kapky brandy
 
-Když jsem byla ještě hodná malá holka, dámo,  
-topořeným pyjům, ptákům rozuměla jsem pramálo,  
-bylo mi z nich upřímně spíše trochu k blití.  
-Pro kundu já znala jsem jen jedno využití,  
-neměla jsem potuchy, jak slastná umí býti,  
-a řeči o šoustání mě často nudívaly k smrti.  
-Však teď o kolik chytřejší jsem ve svém moudrém  
-                                                                                     stáří!  
-Nohy roztáhnu každému, kdo se mnou chce se  
-                                                                                     pářit,  
-můj stud a skromnost společně vzaly nohy na  
-                                                                                ramena,  
-a šoustání teď oddávám se jak smyslů zbavená!  
-Ze všech věcí nejradši mám v zadku tuhý pták,  
-i když mnoha ptáků najednou by člověk měl se bát.  
-Když si dnes kundu prohlížím v odrazu ze zrcadla,  
-je chudinka celá zarudlá, našpulená a zvadlá.  
-Já šoustám prostě ráda, ráno, v poledne i večer,  
-i v neděli já ze šoustání celičký den teču.  
-Nesuďte mě, přátelé, já promrdám i šábes!  
-Výjimečně jenom v pondělí aspoň s análem je  
-                                                                                   ámen.  
-Ať už je horký nebo studený, ptákem já nepohrdnu,  
-Chlapům všech věků i tvarů vzkazuju:  
-Pro vaše péra vždycky zvlhnu!  
-Na vrcholu se udržím klidně i přes hodinu,  
-má kunda žhne jen pro šukec a pro šukec i zhynu.  
-A tomu, kdo nahlas vyřkne, že snad: „Šukání je  
-                                                                                  zločin,“  
-tomu já klidně řeknu do očí, že právě křivě svědčil.  
-Vražte mi do každé ruky pyj a mou kundu stočte  
-                                                                                  na jih.  
-I do zadku jeden pořádný mi vryj,  
-mé díry dychtí jenom po nich.  
-Budu je šoustat, kouřit, laskat,  
-do krve honit je rukama,  
-dokud se každý z nich nevystříká  
-do kundy, pusy či anála!  
-Strčím je tam pak všechny zpět,  
-nebudu od nich chtít za nájem.  
-Sláva mé kundě, té patří svět!  
-Sláva všem pěkným ptákům, pane,  
-budu šukat, co bude tenhle svět,  
-dokud se mnou nebude ámen,  
-A doufám, že se, drahý pane,  
-pak prošukám i rájem.“
+> Když jsem byla ještě hodná malá holka, dámo,  
+> topořeným pyjům, ptákům rozuměla jsem pramálo,  
+> bylo mi z nich upřímně spíše trochu k blití.  
+> Pro kundu já znala jsem jen jedno využití,  
+> neměla jsem potuchy, jak slastná umí býti,  
+> a řeči o šoustání mě často nudívaly k smrti.  
+> Však teď o kolik chytřejší jsem ve svém moudrém  
+>                                                                                      stáří!  
+> Nohy roztáhnu každému, kdo se mnou chce se  
+>                                                                                      pářit,  
+> můj stud a skromnost společně vzaly nohy na  
+>                                                                                 ramena,  
+> a šoustání teď oddávám se jak smyslů zbavená!  
+> Ze všech věcí nejradši mám v zadku tuhý pták,  
+> i když mnoha ptáků najednou by člověk měl se bát.  
+> Když si dnes kundu prohlížím v odrazu ze zrcadla,  
+> je chudinka celá zarudlá, našpulená a zvadlá.  
+> Já šoustám prostě ráda, ráno, v poledne i večer,  
+> i v neděli já ze šoustání celičký den teču.  
+> Nesuďte mě, přátelé, já promrdám i šábes!  
+> Výjimečně jenom v pondělí aspoň s análem je  
+>                                                                                    ámen.  
+> Ať už je horký nebo studený, ptákem já nepohrdnu,  
+> Chlapům všech věků i tvarů vzkazuju:  
+> Pro vaše péra vždycky zvlhnu!  
+> Na vrcholu se udržím klidně i přes hodinu,  
+> má kunda žhne jen pro šukec a pro šukec i zhynu.  
+> A tomu, kdo nahlas vyřkne, že snad: „Šukání je  
+>                                                                                   zločin,“  
+> tomu já klidně řeknu do očí, že právě křivě svědčil.  
+> Vražte mi do každé ruky pyj a mou kundu stočte  
+>                                                                                   na jih.  
+> I do zadku jeden pořádný mi vryj,  
+> mé díry dychtí jenom po nich.  
+> Budu je šoustat, kouřit, laskat,  
+> do krve honit je rukama,  
+> dokud se každý z nich nevystříká  
+> do kundy, pusy či anála!  
+> Strčím je tam pak všechny zpět,  
+> nebudu od nich chtít za nájem.  
+> Sláva mé kundě, té patří svět!  
+> Sláva všem pěkným ptákům, pane,  
+> budu šukat, co bude tenhle svět,  
+> dokud se mnou nebude ámen,  
+> A doufám, že se, drahý pane,  
+> pak prošukám i rájem.“
 
 Když jsme se ráno vzbudily, bylo už moc pozdě na zopakování našich včerejších lesbických radovánek, a tak jsem je rychle vzbudila, aby mi mohly přinést snídani, a slíbila jim, že se během dne podívám Charliemu na zoubek.
 
@@ -879,7 +876,7 @@ Krev mi znovu stoupla do hlavy. Musela jsem je mít oba znovu jen pro sebe. Dív
 
 Sam a Charles mi oba seděli po boku a bylo očividně jasné, že jsou oba znovu připraveni na další radovánky. Posadila jsem tedy Sama na kraj postele, nasunula jsem se čelem k němu na jeho pulsující pyj a zavolala na Charlieho, aby do mě vrazil tu svou kládu zezadu společně se Samovou. Nebylo to zrovna nejjednodušší, neboť Sam sám o sobě zabíral více než dost místa, ale byla to má nejoblíbenější poloha a s pomocí obou dívek byl Charlie brzy také po kořen vevnitř. Annie a Patty pak na můj příkaz šimraly můj klitoris a pysky mé přeplněné kundy a neopomíjely ani péra a koule mých dvou milenců.
 
-Nedokážu slovy popsat, jak nadmíru lascivní bylo tohle spojení trio in uno. Byla jsem tak vlhká, že jejich klády se v mé rozohněné kundě po chvíli bez menších potíží smyslně otíraly nahoru a dolů, nahoru a dolů, a pak: „Ach! Oh! Oh! Už budu! Umírám extází! Kde to jsem? Ach! Nebesa! Ach, bože, ta blahodárná rozkoš!“ Načež jsem málem omdlela přemožená přemírou citů, jen abych se probrala právě ve chvíli, kdy do mě oba zběsile pumpovali svou horkou šťávu.
+Nedokážu slovy popsat, jak nadmíru lascivní bylo tohle spojení _trio in uno_. Byla jsem tak vlhká, že jejich klády se v mé rozohněné kundě po chvíli bez menších potíží smyslně otíraly nahoru a dolů, nahoru a dolů, a pak: „Ach! Oh! Oh! Už budu! Umírám extází! Kde to jsem? Ach! Nebesa! Ach, bože, ta blahodárná rozkoš!“ Načež jsem málem omdlela přemožená přemírou citů, jen abych se probrala právě ve chvíli, kdy do mě oba zběsile pumpovali svou horkou šťávu.
 
 Vzrušení dosahovalo takových extrémů, že oba šampióni, stále pevní jako ocel, bez otálení pokračovali, zatímco dívky, které nechtěly být zastíněny jejich výkony, vyskočily na postel, Patty se ke mně otočila zadkem a vrazila si Samův obličej mezi svá stehna, aby ji mohl okamžitě začít lízat. Annie ji obkročila a přičapla si tak, abych na její kundu i řiť mohla dosáhnout svým jazykem, který se nabídnuté příležitosti zhostil s nevídaným zápalem a vychutnával si jak její dychtivou kundičku, tak její zarudlý svraštělý análek.
 

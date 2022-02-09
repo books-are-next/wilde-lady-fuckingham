@@ -19,12 +19,38 @@ readingOrder:
   - lady_fuckingham_012.html
   - lady_fuckingham_013.html
   - lady_fuckingham_014.html
-  - lady_fuckingham_015.html
   - colophon.html
 tocBase:
   - id: section-1
-    children: []
+    children:
+      - link: lady_fuckingham_005.html
+        title: Úvod
+        hiddenTitle: false
+      - link: lady_fuckingham_006.html
+        title: ČÁST I
+        hiddenTitle: false
+        children: []
+        listType: plain
+      - link: lady_fuckingham_008.html
+        title: Příběh Alice Marchmontové
+        hiddenTitle: false
+      - link: lady_fuckingham_009.html
+        title: ČÁST II
+        hiddenTitle: false
+        children: []
+        listType: plain
+      - link: lady_fuckingham_011.html
+        title: ČÁST III
+        hiddenTitle: false
+        children: []
+        listType: plain
+      - link: lady_fuckingham_013.html
+        title: ČÁST IV
+        hiddenTitle: false
+        children: []
+        listType: plain
     isSection: true
+    listType: plain
 static:
   - style
   - scripts

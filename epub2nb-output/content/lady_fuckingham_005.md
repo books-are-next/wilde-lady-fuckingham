@@ -2,9 +2,8 @@
 title: Úvod
 ---
 
-Drazí čtenáři,
-
-snad není ani v nejmenším třeba se omlouvat za otištění následujícího nadmíru erotického a peprného vyprávění mladé patricijské dámy, jejíž dobrodružství uspokojí každého nefalšovaného milovníka dráždivého čtení.
+  
+  
 
 Tématem pamětí je jedna velmi okouzlující a bystrá bytost něžného pohlaví, obdařená tak vybraným smyslem pro cit a tak vřelou povahou, že nedokázala odolat svůdným silám nejdokonalejšího božího stvoření; jelikož Bůh stvořil člověka dle obrazu svého jako muže a ženu a jeho první přikázání bylo: „Ploďte a množte se a naplňte zemi!“, což lze najít v knize Genesis, kapitole první.
 
@@ -16,4 +15,4 @@ Ubohá dívka neměla dlouhého života, a kdo by jí tedy za­zlíval, že tě
 
 Jako autor jsem si plně vědom, že hrubost mého stylu může být pro někoho urážlivá, avšak doufám, že má snaha poskytnout čtenářům dokonalé potěšení bude dostatečnou omluvou za mé nedostatky.
 
-AUTOR
+_AUTOR_
