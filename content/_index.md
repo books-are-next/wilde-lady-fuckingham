@@ -2,4 +2,4 @@
 title: ''
 ---
 
-![](../Images/upoutavka_eknihy.jpg)
+![](../Images/obalka_lady_fuckingham.jpg)
