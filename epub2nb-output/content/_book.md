@@ -1,17 +1,14 @@
 ---
 outputs: meta
 slug: book
-languageCode: cs
 meta:
   title: Lady Fuckingham
   identifier: urn:uuid:296c0919-9963-415a-a386-6c26c077b931
   author: Oscar Wilde
   publisher: Městská knihovna v Praze
   modified: '2022-02-09T14:15:03.140Z'
-  languageCode: cs
-  publisherShort: mkp
-  edition: beletrie
 readingOrder:
+  - lady_fuckingham_002.html
   - lady_fuckingham_005.html
   - lady_fuckingham_006.html
   - lady_fuckingham_007.html

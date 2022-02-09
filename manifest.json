@@ -1,18 +1,35 @@
 {
   "author": "Oscar Wilde",
-  "edition": "beletrie",
-  "identifier": "wilde-lady-fuckingham-0994430",
-  "languagecode": "cs",
+  "identifier": "wilde-lady-fuckingham-3287e02",
   "modified": "2022-02-09T14:15:03.140Z",
   "publisher": "Městská knihovna v Praze",
-  "publishershort": "mkp",
   "title": "Lady Fuckingham",
-  "revision": "0994430",
+  "revision": "3287e02",
   "generatedAt": {
-    "date": "Wed Feb 09 2022 14:28:59 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1644416939299
+    "date": "Wed Feb 09 2022 14:36:10 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1644417370936
   },
   "documents": [
+    {
+      "title": "Lady Fuckingham",
+      "file": "lady_fuckingham_002.html",
+      "words": 0,
+      "chars": 0,
+      "ideas": 0,
+      "role": "chapter",
+      "order": 0,
+      "prev": null,
+      "next": "lady_fuckingham_005.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
     {
       "title": "Úvod • Lady Fuckingham",
       "file": "lady_fuckingham_005.html",
@@ -20,8 +37,8 @@
       "chars": 1518,
       "ideas": 9,
       "role": "chapter",
-      "order": 0,
-      "prev": null,
+      "order": 1,
+      "prev": "lady_fuckingham_002.html",
       "next": "lady_fuckingham_006.html",
       "toc": [
         {
@@ -40,7 +57,7 @@
       "chars": 6,
       "ideas": 1,
       "role": "chapter",
-      "order": 1,
+      "order": 2,
       "prev": "lady_fuckingham_005.html",
       "next": "lady_fuckingham_007.html",
       "toc": [
@@ -60,7 +77,7 @@
       "chars": 12393,
       "ideas": 30,
       "role": "chapter",
-      "order": 2,
+      "order": 3,
       "prev": "lady_fuckingham_006.html",
       "next": "lady_fuckingham_008.html",
       "toc": [
@@ -80,7 +97,7 @@
       "chars": 24387,
       "ideas": 69,
       "role": "chapter",
-      "order": 3,
+      "order": 4,
       "prev": "lady_fuckingham_007.html",
       "next": "lady_fuckingham_009.html",
       "toc": [
@@ -100,7 +117,7 @@
       "chars": 7,
       "ideas": 1,
       "role": "chapter",
-      "order": 4,
+      "order": 5,
       "prev": "lady_fuckingham_008.html",
       "next": "lady_fuckingham_010.html",
       "toc": [
@@ -120,7 +137,7 @@
       "chars": 20671,
       "ideas": 60,
       "role": "chapter",
-      "order": 5,
+      "order": 6,
       "prev": "lady_fuckingham_009.html",
       "next": "lady_fuckingham_011.html",
       "toc": [
@@ -140,7 +157,7 @@
       "chars": 8,
       "ideas": 1,
       "role": "chapter",
-      "order": 6,
+      "order": 7,
       "prev": "lady_fuckingham_010.html",
       "next": "lady_fuckingham_012.html",
       "toc": [
@@ -160,7 +177,7 @@
       "chars": 34041,
       "ideas": 92,
       "role": "chapter",
-      "order": 7,
+      "order": 8,
       "prev": "lady_fuckingham_011.html",
       "next": "lady_fuckingham_013.html",
       "toc": [
@@ -180,7 +197,7 @@
       "chars": 7,
       "ideas": 1,
       "role": "chapter",
-      "order": 8,
+      "order": 9,
       "prev": "lady_fuckingham_012.html",
       "next": "lady_fuckingham_014.html",
       "toc": [
@@ -200,7 +217,7 @@
       "chars": 128475,
       "ideas": 561,
       "role": "chapter",
-      "order": 9,
+      "order": 10,
       "prev": "lady_fuckingham_013.html",
       "next": "lady_fuckingham_015.html",
       "toc": [
@@ -220,7 +237,7 @@
       "chars": 319,
       "ideas": 12,
       "role": "chapter",
-      "order": 10,
+      "order": 11,
       "prev": "lady_fuckingham_014.html",
       "next": "colophon.html",
       "toc": [
@@ -256,9 +273,9 @@
   ],
   "totals": {
     "all": {
-      "words": 37068,
-      "chars": 222534,
-      "ideas": 852
+      "words": 37066,
+      "chars": 222523,
+      "ideas": 850
     },
     "chapters": {
       "words": 36963,
