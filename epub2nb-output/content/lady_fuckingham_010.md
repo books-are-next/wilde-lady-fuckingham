@@ -3,9 +3,20 @@ title: ''
 ---
 
   
+
   
+
   
+
   
+
+  
+
+  
+
+  
+
+Přeskočím detaily všech praktik, které jsme já a má souložnice skoro každou noc prováděly a jen letmo poznamenám, že dvě větší lesbičky by člověk široko daleko nenašel.
 
 Muselo to počkat až do vánočních prázdnin, než jsem byla představena Frederickovi, kterého jsme společně vybraly, aby mě připravil o věneček, což, jak jsme se shodly, neměla být vůbec nijak komplikovaná operace, jelikož vším tím prstěním a také hojným využíváním Aliciny kožené štangle salámu, která, jak jsem se dozvěděla, byla vytvořena především k jejímu uspokojení, byla moje kundička perfektně vycvičená a dalo se dokonce i pozorovat, jak na ní pomalu raší hnědé kudrlinky. Bylo mi téměř třináct let, když jsme jednoho mrazivého prosincového rána přijeli k internátu, kde nás již vítala tetička, ovšem mé oči hned padly na mladistvou, leč mužnou postavu, která jí stála po boku. Frederick byl pravým opakem své sestry, co se rysů a pleti týkalo, beztak to byl ovšem velmi pohledný mladík sedmnácti či osmnácti let.
 
@@ -90,6 +101,8 @@ Setřela jsem mu ze zadnice krev, pak jsme mu daly pár skleniček vína a dovo
 Můžete se vsadit, že jsme se s Frederickem brzy znovu oddávali rozkoším, a to dokonce i s požehnáním jeho sestry; vypěstovala si ovšem také závislost na rákosce a jednou či dvakrát týdně nás zvala do svého pokoje na mrskací seance, při kterých jsme bývaly oběťmi já a Lucy; ovšem to pálení na našich zadcích jen umocňovalo náš prožitek, který jsme následně nacházely v náručí našeho společného milence.
 
   
+
+Vánoce byly tady a společně s nimi i několik hostů, slečen a pánů našeho věku, kteří s námi přijeli strávit svátky. Naše společnost se skládala z pěti pánů a sedmi dam, když vynechám tetičku, která byla na naši zábavu moc stará a zaměstnávala se starostmi o dům, a tak jsme si každý den po večeři mohli dělat, co jen se nám zachtělo. Já a Alice jsme brzy proměnily našich pět kamarádek v lesbičky otevřené čemukoliv, zatímco Frederick připravoval své přátele mužského pohlaví. Na Nový rok slavil své osmnácté narozeniny a na tu noc jsme s Lucyinou pomocí připravovali v našem křídle opravdové orgie. Měli jsme dobrou zásobu sendvičů, ledu a šampaňského. Tetička nám nařídila, abychom byli v posteli nejpozději do jedné hodiny ranní, což jsme dodrželi, a po nádherném večeru plném tance a her, který v nás všech působil jen stále větší návaly vzrušení z toho, co nás teprve čekalo, neboť jsme všichni cítili, že to, co se bude odehrávat nahoře, bude teprve slastný zážitek, jsme se odebrali do ložnic.
 
 Teta spávala tvrdě a byla docela hluchá, nehledě na to, že Frederick pod záminkou přípitku nalil do služebníků nejprve pivo, potom víno a nakonec ještě kapku brandy na dobrou noc; tak jsme si mohli být jistí, že nás nechají být. Když už jsme u toho, dva nebo tři z nich dokonce snad ani tu noc spát nešli.
 

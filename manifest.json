@@ -1,16 +1,16 @@
 {
   "author": "Oscar Wilde",
   "edition": "beletrie",
-  "identifier": "wilde-lady-fuckingham-e4d3a7c",
+  "identifier": "wilde-lady-fuckingham-be8da3f",
   "languagecode": "cs",
   "modified": "2022-02-09T14:15:03.140Z",
   "publisher": "Městská knihovna v Praze",
   "publishershort": "mkp",
   "title": "Lady Fuckingham",
-  "revision": "e4d3a7c",
+  "revision": "be8da3f",
   "generatedAt": {
-    "date": "Wed Feb 09 2022 14:53:09 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1644418389153
+    "date": "Wed Feb 09 2022 14:58:28 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1644418708480
   },
   "documents": [
     {
@@ -36,9 +36,9 @@
     {
       "title": "Úvod • Lady Fuckingham",
       "file": "lady_fuckingham_005.html",
-      "words": 206,
-      "chars": 1292,
-      "ideas": 7,
+      "words": 235,
+      "chars": 1518,
+      "ideas": 9,
       "role": "chapter",
       "order": 1,
       "prev": "lady_fuckingham_002.html",
@@ -76,9 +76,9 @@
     {
       "title": "Lady Fuckingham",
       "file": "lady_fuckingham_007.html",
-      "words": 2048,
-      "chars": 12380,
-      "ideas": 29,
+      "words": 2050,
+      "chars": 12393,
+      "ideas": 30,
       "role": "chapter",
       "order": 3,
       "prev": "lady_fuckingham_006.html",
@@ -96,9 +96,9 @@
     {
       "title": "Příběh Alice Marchmontové • Lady Fuckingham",
       "file": "lady_fuckingham_008.html",
-      "words": 4095,
-      "chars": 24213,
-      "ideas": 68,
+      "words": 4125,
+      "chars": 24387,
+      "ideas": 69,
       "role": "chapter",
       "order": 4,
       "prev": "lady_fuckingham_007.html",
@@ -136,9 +136,9 @@
     {
       "title": "Lady Fuckingham",
       "file": "lady_fuckingham_010.html",
-      "words": 3270,
-      "chars": 19505,
-      "ideas": 58,
+      "words": 3467,
+      "chars": 20673,
+      "ideas": 60,
       "role": "chapter",
       "order": 6,
       "prev": "lady_fuckingham_009.html",
@@ -176,9 +176,9 @@
     {
       "title": "Lady Fuckingham",
       "file": "lady_fuckingham_012.html",
-      "words": 5388,
-      "chars": 33183,
-      "ideas": 90,
+      "words": 5529,
+      "chars": 34041,
+      "ideas": 92,
       "role": "chapter",
       "order": 8,
       "prev": "lady_fuckingham_011.html",
@@ -216,9 +216,9 @@
     {
       "title": "Lady Fuckingham",
       "file": "lady_fuckingham_014.html",
-      "words": 21252,
-      "chars": 127008,
-      "ideas": 557,
+      "words": 21503,
+      "chars": 128475,
+      "ideas": 561,
       "role": "chapter",
       "order": 10,
       "prev": "lady_fuckingham_013.html",
@@ -236,9 +236,9 @@
     {
       "title": "Tiráž • Lady Fuckingham",
       "file": "colophon.html",
-      "words": 97,
-      "chars": 667,
-      "ideas": 12,
+      "words": 145,
+      "chars": 984,
+      "ideas": 23,
       "role": "colophon",
       "order": null,
       "prev": "lady_fuckingham_014.html",
@@ -256,14 +256,14 @@
   ],
   "totals": {
     "all": {
-      "words": 36370,
-      "chars": 218313,
-      "ideas": 829
+      "words": 37068,
+      "chars": 222536,
+      "ideas": 852
     },
     "chapters": {
-      "words": 36267,
-      "chars": 217609,
-      "ideas": 813
+      "words": 36917,
+      "chars": 221515,
+      "ideas": 825
     }
   }
 }
