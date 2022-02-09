@@ -5,13 +5,10 @@
       "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
       "author": "Oscar Wilde",
       "publisher": "Městská knihovna v Praze",
-      "modified": "2022-02-09T14:15:03.140Z",
-      "languageCode": "cs",
-      "publisherShort": "mkp",
-      "edition": "beletrie"
+      "modified": "2022-02-09T14:15:03.140Z"
     },
     "elements": {
-      "title": "MLP_uroven1_zvlastni_pripady MLP_uroven1_cast ",
+      "title": "MLP_uroven1_zvlastni_pripady MLP_uroven1_cast",
       "subtitle": "",
       "h2": "",
       "h3": "",
@@ -48,7 +45,7 @@
             "filename": "lady_fuckingham_002.md",
             "xhtml": "lady_fuckingham_002.xhtml",
             "id": 1,
-            "role": "cover",
+            "role": "chapter",
             "listType": "plain",
             "inToc": false,
             "hiddenTitle": false,
@@ -60,7 +57,7 @@
             "id": 2,
             "role": "colophon",
             "listType": "plain",
-            "inToc": false,
+            "inToc": true,
             "hiddenTitle": false,
             "children": []
           },
@@ -194,10 +191,7 @@
       "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
       "author": "Oscar Wilde",
       "publisher": "Městská knihovna v Praze",
-      "modified": "2022-02-09T14:15:03.140Z",
-      "languageCode": "cs",
-      "publisherShort": "mkp",
-      "edition": "beletrie"
+      "modified": "2022-02-09T14:15:03.140Z"
     },
     "chapters": [
       {
