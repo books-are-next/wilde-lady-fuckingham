@@ -1,13 +1,16 @@
 {
   "author": "Oscar Wilde",
-  "identifier": "wilde-lady-fuckingham-6e85649",
+  "edition": "beletrie",
+  "identifier": "wilde-lady-fuckingham-e4d3a7c",
+  "languagecode": "cs",
   "modified": "2022-02-09T14:15:03.140Z",
   "publisher": "Městská knihovna v Praze",
+  "publishershort": "mkp",
   "title": "Lady Fuckingham",
-  "revision": "6e85649",
+  "revision": "e4d3a7c",
   "generatedAt": {
-    "date": "Wed Feb 09 2022 14:48:43 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1644418123254
+    "date": "Wed Feb 09 2022 14:53:09 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1644418389153
   },
   "documents": [
     {
@@ -253,9 +256,9 @@
   ],
   "totals": {
     "all": {
-      "words": 36368,
-      "chars": 218302,
-      "ideas": 827
+      "words": 36370,
+      "chars": 218313,
+      "ideas": 829
     },
     "chapters": {
       "words": 36267,

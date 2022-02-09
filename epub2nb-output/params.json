@@ -5,7 +5,10 @@
       "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
       "author": "Oscar Wilde",
       "publisher": "Městská knihovna v Praze",
-      "modified": "2022-02-09T14:15:03.140Z"
+      "modified": "2022-02-09T14:15:03.140Z",
+      "edition": "beletrie",
+      "publisherShort": "mkp",
+      "languageCode": "cs"
     },
     "elements": {
       "title": "MLP_uroven1_zvlastni_pripady MLP_uroven1_cast",
@@ -80,8 +83,8 @@
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
-            "children": [],
-            "title": "Úvod"
+            "title": "Úvod",
+            "children": []
           },
           {
             "filename": "lady_fuckingham_006.md",
@@ -91,6 +94,7 @@
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
+            "title": "ČÁST I",
             "children": [
               {
                 "filename": "lady_fuckingham_007.md",
@@ -102,8 +106,7 @@
                 "hiddenTitle": false,
                 "children": []
               }
-            ],
-            "title": "ČÁST I"
+            ]
           },
           {
             "filename": "lady_fuckingham_008.md",
@@ -113,8 +116,8 @@
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
-            "children": [],
-            "title": "Příběh Alice Marchmontové"
+            "title": "Příběh Alice Marchmontové",
+            "children": []
           },
           {
             "filename": "lady_fuckingham_009.md",
@@ -124,6 +127,7 @@
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
+            "title": "ČÁST II",
             "children": [
               {
                 "filename": "lady_fuckingham_010.md",
@@ -135,8 +139,7 @@
                 "hiddenTitle": false,
                 "children": []
               }
-            ],
-            "title": "ČÁST II"
+            ]
           },
           {
             "filename": "lady_fuckingham_011.md",
@@ -146,6 +149,7 @@
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
+            "title": "ČÁST III",
             "children": [
               {
                 "filename": "lady_fuckingham_012.md",
@@ -157,8 +161,7 @@
                 "hiddenTitle": false,
                 "children": []
               }
-            ],
-            "title": "ČÁST III"
+            ]
           },
           {
             "filename": "lady_fuckingham_013.md",
@@ -168,6 +171,7 @@
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
+            "title": "ČÁST IV",
             "children": [
               {
                 "filename": "lady_fuckingham_014.md",
@@ -179,8 +183,7 @@
                 "hiddenTitle": false,
                 "children": []
               }
-            ],
-            "title": "ČÁST IV"
+            ]
           },
           {
             "filename": "lady_fuckingham_015.md",
@@ -202,7 +205,7 @@
       "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
       "author": "Oscar Wilde",
       "publisher": "Městská knihovna v Praze",
-      "modified": "2022-02-09T14:47:36.693Z"
+      "modified": "2022-02-09T14:52:19.728Z"
     },
     "chapters": [
       {
@@ -362,6 +365,6 @@
       "user": "books-are-next",
       "repo": "wilde-lady-fuckingham"
     },
-    "generatedAt": 1644418057299
+    "generatedAt": 1644418340199
   }
 }
