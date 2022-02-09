@@ -3,9 +3,20 @@ title: ''
 ---
 
   
+
   
+
   
+
   
+
+  
+
+  
+
+  
+
+Vrátily jsme se do školy a já si pilně dopisovala s Frederickem. Naše lístky jsme přikládali k Alicině korespondenci. Čas se táhnul, ale asi si dokážete představit, jak si jej my dívky dovedeme obratně krátit. Několik následujících let teď přeskočím, abyste mě našli ve věku sedmnácti let. Moji poručníci se již nemohou dočkat, až mě budou moct představit u dvora, kde se podle nich určitě někomu zalíbím, a zbaví se tak nadobro své svěřenkyně.
 
 S Alicí jsme se natolik sblížily, že přesvědčila tetičku, aby s mými opatrovníky ujednala, že do své plnoletosti budu moct bydlet v jejich domě. Bylo to nadmíru vyhovující pro všechny strany, neboť jsem ve společnosti Alice mohla vycházet daleko častěji do společnosti, což násobilo šance na to, že potkám nějakého gentlemana, který se zamiluje do hezké tvářičky.
 
@@ -68,6 +79,8 @@ Ačkoliv jsem na takové věci byla zvyklá, jeho pohnutost ve mně vzbudila sym
 „Až později. Nyní se musíme vrátit. Znáte nějaké místo, kde bych se mohla s Vaším Lordstvem soukromě setkat a pohovořit si? Pokud ano, čekejte mě zítra ve dvě odpoledne v Burlington Arcade. Budu v přestrojení,“ odpověděla jsem.
 
   
+
+V rychlosti si poznamenal detaily naší schůzky a spěchali jsme zpět do salonů, ze kterých jsme se vypařili před dobrými dvaceti minutami. O chvíli později, když jsem šeptala Alici vše o mém dobrodružství, si k nám přisedla lady Montairyová, která nám byla představena již dříve. „Ach,“ vzdychla si šibalsky, „jste na dobré cestě, abyste si odsud dnes odnesla hlavní cenu. Má sestra Corisande proti vám nemá šanci.“
 
 „Tančila jsem s ním jen jednou,“ zdrženlivě jsem odpověděla.
 

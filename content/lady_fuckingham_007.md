@@ -3,9 +3,20 @@ title: ''
 ---
 
   
+
   
+
   
+
   
+
+  
+
+  
+
+  
+
+Drahý Waltře,
 
 jak já tě miluji! Leč běda! Co budu živa, se to nedovíš. Sotva můžeš tušit, že si tvá křehká pozornost získala srdce ubohé tuberačky, která je jednou nohou v hrobě, zatímco mě vozíš v mém pojízdném křesle. Jak dychtím po sladké lásce tvých rtů; po tvé nekonečné lordské erekci; po vzrušených pohybech tvého…; ale takových radostí už se nedočkám. I ten nejmenší záchvěv vzrušení by mě dojista zabil a mohu tak jen vzdychat při pohledu na tvůj dobrotivý milující obličej a obdivovat rozměry mého miláčka, který o sobě nechává skrz nohavice tvých kalhot neustále vědět, jako by to byl svazek klíčů; je to vskutku klíč všech klíčů, který by dokázal odemknout každou panenskou skříňku.
 

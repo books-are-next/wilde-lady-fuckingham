@@ -3,9 +3,20 @@ title: ''
 ---
 
   
+
   
+
   
+
   
+
+  
+
+  
+
+  
+
+Musím se nyní vrátit ke svému poměru s Lothairem. Slíbil mi, že se znovu setkáme za týden, a nemohla jsem se dočkat, až uslyším všechny zajímavosti o jeho cestě do Richmondu.
 
 Obědvali jsme znovu v hotelu Bristol a byl stejně rozohněný a impulzivní jako tenkrát, ovšem tentokrát k tomu nebylo třeba afrodiziakum. „Ach, Beatrice,“ řekl, když jsme vysílení leželi na sofa po celé sérii lahodných styků, „nedokážu ani z půli vyjádřit všechen vděk a oddanost, kterou k tobě cítím za to, že jsi mě tak nesobecky postoupila těm dvěma jeptiškám, i když jsi mě sama mohla učinit víc než šťastným. Ale první mi vyprávěj o tom vašem Společenství lásky, kterému jsi slíbila mě představit, a pak budeš moct vyslechnout vyprávění o mém dobrodružství.“
 
@@ -62,6 +73,8 @@ Nedokážu vlastně ani říct, jak to všechno dopadlo, protože to nebralo kon
 Slíbil jsem jim, že se neožením, a vyslovil jsem své přání, aby mě do svaté církve přijal sám svatý otec brzy po Vánocích, když budu na návštěvě v Římě. Tak získám spoustu času k provozování své hry. Dokážu jezuitům, že se dokážu vyrovnat lstem, které na mě zkoušeli, když jsem byl ještě mladý neznalý chlapec na návštěvě ve Vauxe. Mohu milovat Clare, když na to nemyslím, ale pokaždé, když na to jen vzpomenu, začnu ji se vším všudy nenávidět.“
 
   
+
+Náš čas ve městě již byl skoro u konce, a tak na můj popud zorganizovali Bertram a St. Aldegonde urychleně Lothairovu iniciaci do Venušina kruhu.
 
 Stále jsme byli v Cercy House, ovšem tentokrát se obřad konal pod záštitou malé soukromé slavnosti u vévody z Breconu, kde jsme opustili naše kočáry a vyjeli v kočárech Jeho Výsosti na výlet do přírody, který samozřejmě nevedl dál než do Cheyene Walk. Všechno bylo připraveno na Lothairovu iniciaci a rychle jsme se převlékali do šatů, které pro nás stvořila matka příroda. Losovali se partneři pro první tanec, já si vytáhla vévodu z Breconu a Alice Lothaira, zatímco lady Corisande se usadila u piana, odkud svou bravurní hrou doprovázela náš neřestný tanec, při kterém pánové při výměně partnerek uštědřovali vypouklým dámským zadečkům štiplavé facky, na které dámy odpovídaly plácáním po jejich ztopořených penisech. Všechny jsme byly během chvíle tak vzrušené a rozdováděné, že jsme měly co dělat, abychom se udržely, když nás Lothair obcházel dokola a líbal naše chvějící se kundičky.
 
@@ -253,6 +266,8 @@ Konečně to bylo za námi. „A teď,“ řekla lady Bertha, „si odpočineme
 
   
 
+Asi víte, že St. Aldegonde chtěl zastupovat svou zemi v parlamentu a volby měly být již brzy, dokonce se povídalo, že rozpuštění parlamentu bylo přímo na spadnutí, takže jsme nesměli ztrácet čas. Náš plán bylo získat na svoji stranu jednoho movitého velkostatkáře, s jehož podporou už by bylo vše ostatní procházka růžovým sadem. Byl to jeden z mých dávných obdivovatelů a byl velmi zklamaný, když se dozvěděl o mém sňatku s Jeho Výsostí, a tak jsme si byli víc než jisti, že bude na truc všemi prostředky podporovat naši opozici. Jedné noci jsme se připravovali na kutě po naprosto skvostné mrdačce (je to krásné, když jste čerstvě oddaní), když mě najednou rozesmála jedna má skvělá myšlenka.
+
 St. Aldegonde byl celý nedočkavý, na co že jsem přišla, a tak jsem ho políbila a řekla: „Miláčku, (dnes už to dělám, jen když ho potřebuji k něčemu přemluvit) dokázal by ses zříct části mé kundičky, aby sis zajistil místo v parlamentu?“ „Nejdražší Bertho,“ řekl, „v tuhle chvíli by mě nedonutilo žárlit vážně nic na světě, protože jsi právě vysála poslední kapičku mrdky z mého ptáka,“ zívl a pak si uvědomil, oč zde běží. „Máš na mysli pana Stiffingtona, drahoušku? To je skvělý nápad a zatraceně levný způsob, jak ho dostat na naši stranu. Nehledě na to, že kundu mu žádný soud jako úplatek neuzná.“
 
 Vyhlídka dobrodružství společně s dobrem, které bych konala pro svého manžela, ze mě rázem učinilo obětavou dobrovolnici, a jelikož jsme vše museli provést v nejpřísnějším utajení, rozhodlo se, že do Brenthamu pojedu přestrojená za služebnou.
@@ -290,6 +305,8 @@ V tu chvíli hbitě vyskočil, zamkl dveře, pak ze šuplíku vytáhl malou kn�
 Má mise tedy byla úspěšná a Jeho Lordstvo se stalo členem parlamentu.
 
   
+
+Historka lady Berthy nás všechny tak vzrušovala, že jsme se nemohli udržet a vzájemně jsme si pohrávali s našimi intimními partiemi. Ovšem jen co byl příběh u konce, popadli jsme Fanny a Bridget a… Ale je mi jasné, že číst si dokola o tom samém může být někdy mírně únavné, a proto jen letmo zmíním, že John a Charles připravili dívky o panenství ve velkolepém stylu, jelikož obě děvčata brzy pochopila, že jim již žádné další výmluvy nebudou tolerovány.
 
 To bylo mé poslední dobrodružství ve městě. V další části se soustředím na události po svatbě s lordem Crim-Conem, ke které došlo brzy poté.
 
