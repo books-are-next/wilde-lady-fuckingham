@@ -1,11 +1,200 @@
 {
+  "params": {
+    "metadata": {
+      "title": "Lady Fuckingham",
+      "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
+      "author": "Oscar Wilde",
+      "publisher": "Městská knihovna v Praze",
+      "modified": "2022-02-09T14:15:03.140Z",
+      "languageCode": "cs",
+      "publisherShort": "mkp",
+      "edition": "beletrie"
+    },
+    "elements": {
+      "title": "MLP_uroven1_zvlastni_pripady MLP_uroven1_cast ",
+      "subtitle": "",
+      "h2": "",
+      "h3": "",
+      "h4": "",
+      "hr": "",
+      "hrBefore": "",
+      "hrAfter": "",
+      "br": "",
+      "brBefore": "",
+      "brAfter": "",
+      "blockquote": "",
+      "figure": "",
+      "em": "",
+      "strong": "",
+      "remove": "",
+      "ignore": ""
+    },
+    "structure": [
+      {
+        "isSection": true,
+        "id": "section-1",
+        "children": [
+          {
+            "filename": "lady_fuckingham_001.md",
+            "xhtml": "lady_fuckingham_001.xhtml",
+            "id": 0,
+            "role": "cover",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_002.md",
+            "xhtml": "lady_fuckingham_002.xhtml",
+            "id": 1,
+            "role": "cover",
+            "listType": "plain",
+            "inToc": false,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_003.md",
+            "xhtml": "lady_fuckingham_003.xhtml",
+            "id": 2,
+            "role": "colophon",
+            "listType": "plain",
+            "inToc": false,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_004.md",
+            "xhtml": "lady_fuckingham_004.xhtml",
+            "id": 3,
+            "role": "colophon",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_005.md",
+            "xhtml": "lady_fuckingham_005.xhtml",
+            "id": 4,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_006.md",
+            "xhtml": "lady_fuckingham_006.xhtml",
+            "id": 5,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_007.md",
+            "xhtml": "lady_fuckingham_007.xhtml",
+            "id": 6,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_008.md",
+            "xhtml": "lady_fuckingham_008.xhtml",
+            "id": 7,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_009.md",
+            "xhtml": "lady_fuckingham_009.xhtml",
+            "id": 8,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_010.md",
+            "xhtml": "lady_fuckingham_010.xhtml",
+            "id": 9,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_011.md",
+            "xhtml": "lady_fuckingham_011.xhtml",
+            "id": 10,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_012.md",
+            "xhtml": "lady_fuckingham_012.xhtml",
+            "id": 11,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_013.md",
+            "xhtml": "lady_fuckingham_013.xhtml",
+            "id": 12,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_014.md",
+            "xhtml": "lady_fuckingham_014.xhtml",
+            "id": 13,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          },
+          {
+            "filename": "lady_fuckingham_015.md",
+            "xhtml": "lady_fuckingham_015.xhtml",
+            "id": 14,
+            "role": "chapter",
+            "listType": "plain",
+            "inToc": true,
+            "hiddenTitle": false,
+            "children": []
+          }
+        ]
+      }
+    ]
+  },
   "epub": {
     "metadata": {
       "title": "Lady Fuckingham",
       "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
       "author": "Oscar Wilde",
       "publisher": "Městská knihovna v Praze",
-      "modified": "2022-02-09T14:15:03.140Z"
+      "modified": "2022-02-09T14:28:04.906Z"
     },
     "chapters": [
       {
@@ -33,13 +222,13 @@
         "xhtml": "lady_fuckingham_004.xhtml"
       },
       {
-        "titleSuggest": "",
+        "titleSuggest": "Úvod",
         "subtitleSuggest": "",
         "filename": "lady_fuckingham_005.md",
         "xhtml": "lady_fuckingham_005.xhtml"
       },
       {
-        "titleSuggest": "",
+        "titleSuggest": "ČÁST I",
         "subtitleSuggest": "",
         "filename": "lady_fuckingham_006.md",
         "xhtml": "lady_fuckingham_006.xhtml"
@@ -51,13 +240,13 @@
         "xhtml": "lady_fuckingham_007.xhtml"
       },
       {
-        "titleSuggest": "",
+        "titleSuggest": "Příběh Alice Marchmontové",
         "subtitleSuggest": "",
         "filename": "lady_fuckingham_008.md",
         "xhtml": "lady_fuckingham_008.xhtml"
       },
       {
-        "titleSuggest": "",
+        "titleSuggest": "ČÁST II",
         "subtitleSuggest": "",
         "filename": "lady_fuckingham_009.md",
         "xhtml": "lady_fuckingham_009.xhtml"
@@ -69,7 +258,7 @@
         "xhtml": "lady_fuckingham_010.xhtml"
       },
       {
-        "titleSuggest": "",
+        "titleSuggest": "ČÁST III",
         "subtitleSuggest": "",
         "filename": "lady_fuckingham_011.md",
         "xhtml": "lady_fuckingham_011.xhtml"
@@ -81,7 +270,7 @@
         "xhtml": "lady_fuckingham_012.xhtml"
       },
       {
-        "titleSuggest": "",
+        "titleSuggest": "ČÁST IV",
         "subtitleSuggest": "",
         "filename": "lady_fuckingham_013.md",
         "xhtml": "lady_fuckingham_013.xhtml"
@@ -165,6 +354,6 @@
       "user": "books-are-next",
       "repo": "wilde-lady-fuckingham"
     },
-    "generatedAt": 1644416103496
+    "generatedAt": 1644416885352
   }
 }
