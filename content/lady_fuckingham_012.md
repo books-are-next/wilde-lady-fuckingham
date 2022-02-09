@@ -3,12 +3,9 @@ title: ''
 ---
 
   
-
   
-
   
-
-Vrátily jsme se do školy a já si pilně dopisovala s Frederickem. Naše lístky jsme přikládali k Alicině korespondenci. Čas se táhnul, ale asi si dokážete představit, jak si jej my dívky dovedeme obratně krátit. Několik následujících let teď přeskočím, abyste mě našli ve věku sedmnácti let. Moji poručníci se již nemohou dočkat, až mě budou moct představit u dvora, kde se podle nich určitě někomu zalíbím, a zbaví se tak nadobro své svěřenkyně.
+  
 
 S Alicí jsme se natolik sblížily, že přesvědčila tetičku, aby s mými opatrovníky ujednala, že do své plnoletosti budu moct bydlet v jejich domě. Bylo to nadmíru vyhovující pro všechny strany, neboť jsem ve společnosti Alice mohla vycházet daleko častěji do společnosti, což násobilo šance na to, že potkám nějakého gentlemana, který se zamiluje do hezké tvářičky.
 
@@ -70,13 +67,13 @@ Ačkoliv jsem na takové věci byla zvyklá, jeho pohnutost ve mně vzbudila sym
 
 „Až později. Nyní se musíme vrátit. Znáte nějaké místo, kde bych se mohla s Vaším Lordstvem soukromě setkat a pohovořit si? Pokud ano, čekejte mě zítra ve dvě odpoledne v Burlington Arcade. Budu v přestrojení,“ odpověděla jsem.
 
-V rychlosti si poznamenal detaily naší schůzky a spěchali jsme zpět do salonů, ze kterých jsme se vypařili před dobrými dvaceti minutami. O chvíli později, když jsem šeptala Alici vše o mém dobrodružství, si k nám přisedla lady Montairyová, která nám byla představena již dříve. „Ach,“ vzdychla si šibalsky, „jste na dobré cestě, abyste si odsud dnes odnesla hlavní cenu. Má sestra Corisande proti vám nemá šanci.“
+  
 
 „Tančila jsem s ním jen jednou,“ zdrženlivě jsem odpověděla.
 
 „Ach!“ zasmála se, „narážela jsem spíše na vaši procházku zimní zahradou. Vypadali jste tak zamilovaně.“
 
-„Neoddávali jsme se ovšem žádnému pas seul, tak jako vy a Jeho Veličenstvo,“ ušklíbla jsem se a užívala si jejího rozrušenému zmatení. Překvapením oněměla, v jejích očích byl vidět strach, a tak jsem neváhala a rychle ji uklidnila: „Jsem vaše přítelkyně, lady Montairyová, vaše tajemství je u mě v bezpečí. A doufám, že už se od vás nedočkáme žádných poznámek ohledně mě a Lothaira.“
+„Neoddávali jsme se ovšem žádnému _pas seul_, tak jako vy a Jeho Veličenstvo,“ ušklíbla jsem se a užívala si jejího rozrušenému zmatení. Překvapením oněměla, v jejích očích byl vidět strach, a tak jsem neváhala a rychle ji uklidnila: „Jsem vaše přítelkyně, lady Montairyová, vaše tajemství je u mě v bezpečí. A doufám, že už se od vás nedočkáme žádných poznámek ohledně mě a Lothaira.“
 
 Nervózně mi stiskla ruku a zeptala se: „Pamatujete na Fredovy narozeniny? Osobně jsem tam nebyla, ale můj bratr Bertram a jeho bratranec a sestřenice Vavasourovi ano. Vydával se za jejich bratra Charlieho, který byl tou dobou nemocen a nemohl se dostavit. Byla jsem do vašeho spolku již iniciována. Určitě se brzy znovu uvidíme,“ dodala s úsměvem; „Ale teď musím znovu za svými povinnostmi.“
 
@@ -88,7 +85,7 @@ Služebná mě v ložnici zbavila kabátu a klobouku a znovu jsem se připoji
 
 Lothairova předešlá stydlivost jako by byla ta tam, náhle galantně trval na tom, abych se první občerstvila, než se dáme do povídání. „Beztak,“ řekl, „trocha šampaňského vám dodá odvahy; to, čeho jsme byli svědky včera večer byl pro nás pro oba takový šok, že pokud byste dnes raději neříkala nic, budu to naprosto chápat a nebudu vás do ničeho nutit.“
 
-Během oběda byl velmi zábavný, a když už jsme skoro měli dojedeno, poprosila jsem ho, aby zazvonil pro trochu mléka, které mi bylo doneseno. On zatím pečlivě zkoumal zbytky paté de foie gras. Nalila jsem mléko do skleniček od šampaňského a do jeho sklenky jsem lstivě přidala asi deset kapek afrodiziaka, které mi poskytla Alice. „A nyní, můj pane, vás vyzývám k přípitku mým nejoblíbenějším nápojem, šampaňským s mlékem. Je to opravdu lahodné!“ Dolila jsem mléko šumivým vínem a podala jsem mu sklenku, které jsem se předtím ještě dotkla rty.
+Během oběda byl velmi zábavný, a když už jsme skoro měli dojedeno, poprosila jsem ho, aby zazvonil pro trochu mléka, které mi bylo doneseno. On zatím pečlivě zkoumal zbytky _paté de foie gras_. Nalila jsem mléko do skleniček od šampaňského a do jeho sklenky jsem lstivě přidala asi deset kapek afrodiziaka, které mi poskytla Alice. „A nyní, můj pane, vás vyzývám k přípitku mým nejoblíbenějším nápojem, šampaňským s mlékem. Je to opravdu lahodné!“ Dolila jsem mléko šumivým vínem a podala jsem mu sklenku, které jsem se předtím ještě dotkla rty.
 
 Jeho oči svítily blahem, obrátil nápoj do sebe a prázdnou sklenku zahodil přes rameno se slovy: „Již nikdo se k této sklenici rty nepřiblíží, byla to opravdu výzva, lady Beatrice, po které mě pouhý otisk neuspokojí.“ Poté vstal a trval na tom, že musí dostat polibek, ke kterému jsem ho údajně vyzvala.
 
@@ -166,7 +163,7 @@ V pokoji stál novic vévoda z Breconu a jeho sponzoři Bertram a lord Caris
 
 Lord St. Aldegonde, úřadující prezident, se zeptal Corisande a vévody, zda přísahají, že o Venušině kruhu a jeho tajemstvích budou navěky mlčet, načež si neodpustil poznamenat, že je celá přísaha pravděpodobně stejně zbytečná, neboť se přece o spolku museli od někoho dovědět, ačkoliv věří, že ti, kteří jim tajemství svěřili, tak činili s čestnými úmysly. Oba nováčci přísahali a poté, co si navzájem potřásli rukama, vyzval prezident všechny k přípravám na večerní bál, jelikož už nikdo další neměl dorazit.
 
-Společnost se odebrala do pokojů a za pár minut se všichni znovu shromáždili v salonu, každý oděn pouze do roucha Adamova až na hedvábné punčochy, podvazky a elegantní taneční obuv. Aby si nikdo nemohl závidět partnera, byla hned vedle občerstvení umístěna hluboká krabice, do které měl každý gentleman na útržku pergamenu vhodit své jméno, a slečny si tak své partnery pro první valčík a následující pas de deux mohly spravedlivě vylosovat. Corisande si vytáhla lorda Carisbrooka a mou výhrou byl St. Aldegonde.
+Společnost se odebrala do pokojů a za pár minut se všichni znovu shromáždili v salonu, každý oděn pouze do roucha Adamova až na hedvábné punčochy, podvazky a elegantní taneční obuv. Aby si nikdo nemohl závidět partnera, byla hned vedle občerstvení umístěna hluboká krabice, do které měl každý gentleman na útržku pergamenu vhodit své jméno, a slečny si tak své partnery pro první valčík a následující _pas de deux_ mohly spravedlivě vylosovat. Corisande si vytáhla lorda Carisbrooka a mou výhrou byl St. Aldegonde.
 
 Nesmím také opomenout, že na jednu z dam čekal lístek s nápisem „piano“ a poslední nevylosovaný gentleman jí musel při hraní otáčet listy. Lístek si vytáhla lady Bertha, shodou okolností geniální pianistka, a okamžitě se pustila do dobře známé a oblíbené skladby z Argyll Rooms a všichni se v mžiku dali do pohybu. Bylo to o tolik víc vzrušující než náš dýchánek s páskami přes oči na Fredovy narozeniny. Bertha hrála tak dlouho, dokud se každý páreček neuchýlil do jedné z připravených pohovek, které byly rozestavěné po pokoji. Můj partner měl opravdu výjimečnou erekci, ale zašeptal: „Ještě ne, Beatrice, nejdřív se musíme postarat o Corisande.“ Ostatní kolem nás se oddávali radostem a nevypadalo to, že by kdokoliv potřeboval sebemenších rad. Všechny páry se seskupily do půlkruhu kolem gauče, na kterém Carisbrooke líbal a hladil Co­risande, zatímco vzdychající překrásná dívka s láskyplným pohledem hypnotizovala jeho výstavního ptáka, kterého třímala v ruce. „Teď, drahoušku,“ řekl galantně, „musíš jakožto nováček políbit náčiní každého z přítomných pánů a poté tě zasvětíme do tajů Venuše.“ Corisande brala celá rudá do rukou jedno péro za druhým a jemně políbila každou měkkou sametovou hlavičku. „A teď ty, Brecone,“ řekl můj partner, „udělej to samé všem dámám a tato část obřadu bude u konce.“
 

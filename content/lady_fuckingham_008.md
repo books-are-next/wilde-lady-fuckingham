@@ -2,9 +2,9 @@
 title: Příběh Alice Marchmontové
 ---
 
-Druhý den jsem byla tak nedočkavá. Jen co jsme se setkaly v naší útulné svatyni, vyhrkla jsem: „A rychle do postele, hořím zvědavostí, vyprávěj mi už ten svůj příběh, Alice.“
+  
 
-„Brzy se dočkáš jak příběhu, tak mých doteků, když mě jen necháš v klidu se svléknout. Beztak nemohu hned skočit do postele, musím nejdřív zkontrolovat svoje soukromé kudrlinky. Co na ně říkáš Beatrice? Sundej si košilku, porovnáme si kundičky,“ řekla a vmžiku se svlečená prohlížela před zrcadlem. Brzy jsem zaujala místo po jejím boku. „Máš tak překrásně našpulenou malou štěrbinku, Beatrice,“ pronesla a poplácala mě po mons veneris. Jsme tak překrásné protiklady. Ta má je světle blonďatá a tvoje bude brunetka. Podívej, mé chloupky už povyrostly na půl palce.“ Donekonečna protahovala svoje vzrušivé hrátky, dokud mi nedošla trpělivost. Hodila jsem na sebe znovu noční košilku, skočila jsem zpátky do postele a řekla jsem, že to určitě byly jenom samé vý­mysly, že vůbec žádný příběh neexistuje a že se s ní odmítám znovu milovat, dokud neutěší mou zvědavost.
+„Brzy se dočkáš jak příběhu, tak mých doteků, když mě jen necháš v klidu se svléknout. Beztak nemohu hned skočit do postele, musím nejdřív zkontrolovat svoje soukromé kudrlinky. Co na ně říkáš Beatrice? Sundej si košilku, porovnáme si kundičky,“ řekla a vmžiku se svlečená prohlížela před zrcadlem. Brzy jsem zaujala místo po jejím boku. „Máš tak překrásně našpulenou malou štěrbinku, Beatrice,“ pronesla a poplácala mě po _mons veneris_. Jsme tak překrásné protiklady. Ta má je světle blonďatá a tvoje bude brunetka. Podívej, mé chloupky už povyrostly na půl palce.“ Donekonečna protahovala svoje vzrušivé hrátky, dokud mi nedošla trpělivost. Hodila jsem na sebe znovu noční košilku, skočila jsem zpátky do postele a řekla jsem, že to určitě byly jenom samé vý­mysly, že vůbec žádný příběh neexistuje a že se s ní odmítám znovu milovat, dokud neutěší mou zvědavost.
 
 „Jaká to nevychovanost, pochybovat o mém slibu,“ vykřikla a skočila za mnou do postele. Překvapila mě, vyhrnula mi košilku a naplácala mi na holou. Pak se smíchem pokračovala: „V budoucnu už si snad o slibu mladé dámy pochybovat nedovolíš. Začnu tedy vyprávět, i když za tu svou opovážlivost by sis zasloužila počkat si až do zítřka.“
 
@@ -22,7 +22,7 @@ Dalšího rána Alice zpoza nepoužívaných dveří sledovala, jak pan William 
 
 „Nač takový spěch, Lucy?“ vzdychal její milenec, málem zadušen návalem jejích polibků. „Nepokaž to všechno svou nedočkavostí, nejdřív musím mít svůj polibek.“
 
-Něžně ji položil na sofa a nadzvedl jí šaty tak vysoko, že Alice viděla celé její bělostné nohy, ale co ji fascinovalo nejvíce, byly našpulené ruměné pysky Luciiny kundičky, které se otevíraly mezi jejími otevřenými stehny. Její mons veneris byla porostlá překrásnými černými kudrlinkami.
+Něžně ji položil na sofa a nadzvedl jí šaty tak vysoko, že Alice viděla celé její bělostné nohy, ale co ji fascinovalo nejvíce, byly našpulené ruměné pysky Luciiny kundičky, které se otevíraly mezi jejími otevřenými stehny. Její _mons veneris_ byla porostlá překrásnými černými kudrlinkami.
 
 Komorník byl na kolenou než bys řekl švec, přilepil své rty na její štěrbinku a zběsile ji sál a líbal k očividnému potěšení mladé dívky, která slastí vzdychala. Konečně už to pan William nemohl vydržet a vyrazil se svým kopím do útoku a k Alicině překvapení zabodnul svou zbraň hluboko do zející štěrbiny, až se celý ztratil v jejím břiše. Chvíli jen nehybně leželi a užívali si své propojení, pak Lucy nadzvedla svůj zadek a komorník jí odpověděl šťouchancem a dali se do vzrušujícího zápasu. Alice pozorovala, jak lesklá mužná kláda zajíždí a vyjíždí z pochvy, zatímco ji stydké pysky sevřely pokaždé, když se vysouvala, jako by se bály, že se už nikdy nevrátí. Netrvalo to dlouho a jejich pohyby zuřivě zintenzívněly, dokud se najednou nesetkali v křečovitém objetí a jak slastí omdlévali, všimla si Alice krémových pramínků, které vytékaly Lucy z pochvy, zatímco na sobě oba leželi ve spokojené letargii po své milostné bitvě.
 

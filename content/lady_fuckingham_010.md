@@ -3,12 +3,9 @@ title: ''
 ---
 
   
-
   
-
   
-
-Přeskočím detaily všech praktik, které jsme já a má souložnice skoro každou noc prováděly a jen letmo poznamenám, že dvě větší lesbičky by člověk široko daleko nenašel.
+  
 
 Muselo to počkat až do vánočních prázdnin, než jsem byla představena Frederickovi, kterého jsme společně vybraly, aby mě připravil o věneček, což, jak jsme se shodly, neměla být vůbec nijak komplikovaná operace, jelikož vším tím prstěním a také hojným využíváním Aliciny kožené štangle salámu, která, jak jsem se dozvěděla, byla vytvořena především k jejímu uspokojení, byla moje kundička perfektně vycvičená a dalo se dokonce i pozorovat, jak na ní pomalu raší hnědé kudrlinky. Bylo mi téměř třináct let, když jsme jednoho mrazivého prosincového rána přijeli k internátu, kde nás již vítala tetička, ovšem mé oči hned padly na mladistvou, leč mužnou postavu, která jí stála po boku. Frederick byl pravým opakem své sestry, co se rysů a pleti týkalo, beztak to byl ovšem velmi pohledný mladík sedmnácti či osmnácti let.
 
@@ -20,9 +17,9 @@ Lucy, kterou jsem viděla poprvé, měla ustláno v malém pokoji hned vedle Al
 
 Brzy nám bylo jasné, že Lucy má se svým mladým pánem více než vřelé vztahy, což se Alice rozhodla využít v náš prospěch.
 
-Brzy svou femme de chambre přesvědčila, že si nemůže uzurpovat a užívat mladého pána jen pro sebe, a když zjistila, že by měl té noci Lucy v jejím pokoji navštívit, trvala na tom, že Lucy musí spát s ní a já že budu nastrčena na místo Frederickova miláčka.
+Brzy svou _femme de chambre_ přesvědčila, že si nemůže uzurpovat a užívat mladého pána jen pro sebe, a když zjistila, že by měl té noci Lucy v jejím pokoji navštívit, trvala na tom, že Lucy musí spát s ní a já že budu nastrčena na místo Frederickova miláčka.
 
-Byla jsem nadmíru ochotná se tohoto plánu účastnit a o desáté hodině večerní jsem zaujala místo v pohodlné posteli femme de chambre a jala se předstírat hluboký spánek. Lucy naolejovala zámek ve dveřích tak, aby se otevíraly bez jediného zašramocení, ovšem celý pokoj byl schválně zahalen do tmy pevně zataženými záclonami.
+Byla jsem nadmíru ochotná se tohoto plánu účastnit a o desáté hodině večerní jsem zaujala místo v pohodlné posteli _femme de chambre_ a jala se předstírat hluboký spánek. Lucy naolejovala zámek ve dveřích tak, aby se otevíraly bez jediného zašramocení, ovšem celý pokoj byl schválně zahalen do tmy pevně zataženými záclonami.
 
 Dle mého nejlepšího odhadu se kolem jedenácté hodiny dveře potichu otevřely a ve světle, které vycházelo z chodby, jsem spatřila postavu oděnou jen do košile, jak opatrně vplouvá do pokoje a míří k posteli. Dveře se zavřely, vše znovu pohltila tma a srdce se mi z příchodu vytouženého uchvatitele mého panenství strašlivě rozbušilo.
 
@@ -44,7 +41,7 @@ Využíval všech výhod, aby mohl pokračovat v pohybech se strhu­jící ener
 
 Lucy se objevila se svíčkou v ruce a okamžitě za sebou zamkla dveře, aby neměl žádnou šanci utéci. Všimla jsem si, že byla nadšená z podívané, kterou jí naše propojená těla připravila, jelikož, jak jsem byla dříve instruována, jsem se ho zuby nehty držela v předstíraném zděšení a snažila se schovávat svůj obličej na jeho hrudi.
 
-Frederick byl naprosto zmatený a zprvu se bál, že ho sestra prozradí, ale jak pokračovala, pomalu se uklidňoval. „Co jen udělám? Nemohu to říct tak staré dámě, jako je tetička. To ponížení, které by to přineslo malé Beatrice před mými vlastními zraky, a to již v druhý den její návštěvy. Kdyby jen maminka s tatínkem byli doma, ti by věděli, co si počít, ale takhle se musím rozhodnout sama. Takže, Fredericku, vy se necháte za své činy řádně zbičovat, nebo mám snad napsat dopis tvému otci a poslat ráno zostuzenou Beatrice domů s tím, že vy jí budete muset přislíbit sňatek, pane? Právě jste ji pro kohokoliv jiného zprznil. Kdo myslíte, že by si vzal cruche casée, kdyby to věděl, kdo by ji nezavrhl, když by se na to přišlo, tak jak by tomu bylo první noci o její svatbě? Ne, ty zlobivý chlapče, rozhodla jsem se tě potrestat a zároveň jí nabídnout všechnu kompenzaci, ke které máš prostředky.“
+Frederick byl naprosto zmatený a zprvu se bál, že ho sestra prozradí, ale jak pokračovala, pomalu se uklidňoval. „Co jen udělám? Nemohu to říct tak staré dámě, jako je tetička. To ponížení, které by to přineslo malé Beatrice před mými vlastními zraky, a to již v druhý den její návštěvy. Kdyby jen maminka s tatínkem byli doma, ti by věděli, co si počít, ale takhle se musím rozhodnout sama. Takže, Fredericku, vy se necháte za své činy řádně zbičovat, nebo mám snad napsat dopis tvému otci a poslat ráno zostuzenou Beatrice domů s tím, že vy jí budete muset přislíbit sňatek, pane? Právě jste ji pro kohokoliv jiného zprznil. Kdo myslíte, že by si vzal _cruche casée_, kdyby to věděl, kdo by ji nezavrhl, když by se na to přišlo, tak jak by tomu bylo první noci o její svatbě? Ne, ty zlobivý chlapče, rozhodla jsem se tě potrestat a zároveň jí nabídnout všechnu kompenzaci, ke které máš prostředky.“
 
 S pláčem jsem ji prosila, aby na něj nebyla tak přísná, tolik mi zase neublížil a nakonec přece jen důkladně potěšil mé vzrušené smysly.
 
@@ -92,11 +89,11 @@ Setřela jsem mu ze zadnice krev, pak jsme mu daly pár skleniček vína a dovo
 
 Můžete se vsadit, že jsme se s Frederickem brzy znovu oddávali rozkoším, a to dokonce i s požehnáním jeho sestry; vypěstovala si ovšem také závislost na rákosce a jednou či dvakrát týdně nás zvala do svého pokoje na mrskací seance, při kterých jsme bývaly oběťmi já a Lucy; ovšem to pálení na našich zadcích jen umocňovalo náš prožitek, který jsme následně nacházely v náručí našeho společného milence.
 
-Vánoce byly tady a společně s nimi i několik hostů, slečen a pánů našeho věku, kteří s námi přijeli strávit svátky. Naše společnost se skládala z pěti pánů a sedmi dam, když vynechám tetičku, která byla na naši zábavu moc stará a zaměstnávala se starostmi o dům, a tak jsme si každý den po večeři mohli dělat, co jen se nám zachtělo. Já a Alice jsme brzy proměnily našich pět kamarádek v lesbičky otevřené čemukoliv, zatímco Frederick připravoval své přátele mužského pohlaví. Na Nový rok slavil své osmnácté narozeniny a na tu noc jsme s Lucyinou pomocí připravovali v našem křídle opravdové orgie. Měli jsme dobrou zásobu sendvičů, ledu a šampaňského. Tetička nám nařídila, abychom byli v posteli nejpozději do jedné hodiny ranní, což jsme dodrželi, a po nádherném večeru plném tance a her, který v nás všech působil jen stále větší návaly vzrušení z toho, co nás teprve čekalo, neboť jsme všichni cítili, že to, co se bude odehrávat nahoře, bude teprve slastný zážitek, jsme se odebrali do ložnic.
+  
 
 Teta spávala tvrdě a byla docela hluchá, nehledě na to, že Frederick pod záminkou přípitku nalil do služebníků nejprve pivo, potom víno a nakonec ještě kapku brandy na dobrou noc; tak jsme si mohli být jistí, že nás nechají být. Když už jsme u toho, dva nebo tři z nich dokonce snad ani tu noc spát nešli.
 
-Frederick se celého večera ujal a Alice mu byla velmi užitečnou asistentkou. Jak již jsem zmínila, všichni překypovali vzrušením a byli svolni k čemukoli. V každém z nás pumpovala modrá krev. Když se všichni shromáždili v Alicině pokoji, předstoupila před nás jen v jednoduché dlouhé košilce de nuit. „Dámy a pánové, věřím, že se již všichni nemůžeme dočkat našich nevázaných radovánek. Doufám, že jste spokojeni s mým úborem,“ a se zkaženým úsměvem dodala: „Snad moc neodhaluje křivky mé figury,“ a utáhla si košili pevně kolem těla, aby bylo dobře vidět na záhyby jejího pozadí a pár hedvábných růžových punčoch.
+Frederick se celého večera ujal a Alice mu byla velmi užitečnou asistentkou. Jak již jsem zmínila, všichni překypovali vzrušením a byli svolni k čemukoli. V každém z nás pumpovala modrá krev. Když se všichni shromáždili v Alicině pokoji, předstoupila před nás jen v jednoduché dlouhé košilce _de nuit_. „Dámy a pánové, věřím, že se již všichni nemůžeme dočkat našich nevázaných radovánek. Doufám, že jste spokojeni s mým úborem,“ a se zkaženým úsměvem dodala: „Snad moc neodhaluje křivky mé figury,“ a utáhla si košili pevně kolem těla, aby bylo dobře vidět na záhyby jejího pozadí a pár hedvábných růžových punčoch.
 
 „Bravo! Bravo! Bravo, Alice! Budiž nám příkladem,“ ozývalo se ze všech stran. Všichni hosté odcupitali do svých pokojů a vrátili se civilně oděni, avšak příliš krátké šosy pánských košilí způsobily mnoho povyku.
 
@@ -108,7 +105,7 @@ Alice se červenala jak malá holka, málem že nepropukla v hněv, ale se smí
 
 Dívky ječely, jak se na ně pánové vrhli. Byl to opravdu strhující moment; mladé dámy oplácely a trhaly mučitelům košile ze zad a celá tahle první potyčka za sebou zanechala všechny v naprosté nahotě. Polévalo je horko, když si prohlíželi všechny ty odkryté pánské i dámské půvaby.
 
-Frederick s lahví šampaňského v ruce povídá: „O nuda veritas jsme všichni slyšeli, připijme tedy na její zdraví; ať naši půvabnou společnost vítá s otevřenou náručí.“
+Frederick s lahví šampaňského v ruce povídá: „O _nuda veritas_ jsme všichni slyšeli, připijme tedy na její zdraví; ať naši půvabnou společnost vítá s otevřenou náručí.“
 
 Všichni si připili, víno rozohnilo naše touhy a nebylo mezi námi jediného mužského orgánu, který by se nenacházel v božském stadiu erekce.
 
@@ -120,7 +117,7 @@ Slečna Vavasourová přepadla přes jednoho z lískaných gentlemanů, byl to 
 
 „Přestaňte! Přestaňte! Byla spravedlivě chycena a nyní bude obětována na Oltáři lásky,“ křičela Alice.
 
-Lucy zatím protlačila doprostřed pokoje malý červený gauč. Všichni se v dobré náladě pustili do aranžování páru na pohovku. Dáma ležela na zádech s polštářem pod zadkem a mladý markýz klečel na kolenou pevně zasazen mezi její stehna. Oba byli ještě začátečníci, ale nemohli byste si představit kouzelnější pár. Mladému pánovi bylo sedmnáct let, měl tmavé vlasy i oči, velmi podobné jeho společnici, a i tmavé ochlupení jejich nádobíčka bylo téměř totožné; špička jeho klády vypadala se staženou kůžičkou jako veliký rubín, který na Frederickovo pozvání představil její pootevřené dychtivé ruměné štěrbince. Jejich dotek ji rozžhavil doruda a brzy již šíp lásky proklouzl jejím panenstvím. Dobrý rádce Fred šeptal taktéž zrudlému mladému pánovi do ucha další rady. Ten pod sebou vší silou tiskl mladou dámičku a vrhl se do krutého útoku, jen co ucítil, že jeho oř již prorazil hlouběji dovnitř. Její bolestivé sténání se snažil tlumit polibky. Byl to jeden z těch případů veni, vidi, vici. Jeho útok byl tak impulzivní, že její panenská blána praskla již při úvodním vpichu a mladý pán ji tak již brzy ovládal až po kořínky pubického ochlupení. Když chvilku odpočíval, otevřela oči a s nepatrným úsměvem řekla: „Ach! Máte ho opravdu ostrý, ale i tak již cítím první záchvěvy rozkoše z naší lásky. Jen pokračujte, drahý, náš příklad již brzy rozohní ostatní ke stejným činům.“ Vyzývavě nadzvedávala svou prdelku a láskyplně mu tiskla obličej na svá prsa.
+Lucy zatím protlačila doprostřed pokoje malý červený gauč. Všichni se v dobré náladě pustili do aranžování páru na pohovku. Dáma ležela na zádech s polštářem pod zadkem a mladý markýz klečel na kolenou pevně zasazen mezi její stehna. Oba byli ještě začátečníci, ale nemohli byste si představit kouzelnější pár. Mladému pánovi bylo sedmnáct let, měl tmavé vlasy i oči, velmi podobné jeho společnici, a i tmavé ochlupení jejich nádobíčka bylo téměř totožné; špička jeho klády vypadala se staženou kůžičkou jako veliký rubín, který na Frederickovo pozvání představil její pootevřené dychtivé ruměné štěrbince. Jejich dotek ji rozžhavil doruda a brzy již šíp lásky proklouzl jejím panenstvím. Dobrý rádce Fred šeptal taktéž zrudlému mladému pánovi do ucha další rady. Ten pod sebou vší silou tiskl mladou dámičku a vrhl se do krutého útoku, jen co ucítil, že jeho oř již prorazil hlouběji dovnitř. Její bolestivé sténání se snažil tlumit polibky. Byl to jeden z těch případů _ven_i, _vidi_, _vici_. Jeho útok byl tak impulzivní, že její panenská blána praskla již při úvodním vpichu a mladý pán ji tak již brzy ovládal až po kořínky pubického ochlupení. Když chvilku odpočíval, otevřela oči a s nepatrným úsměvem řekla: „Ach! Máte ho opravdu ostrý, ale i tak již cítím první záchvěvy rozkoše z naší lásky. Jen pokračujte, drahý, náš příklad již brzy rozohní ostatní ke stejným činům.“ Vyzývavě nadzvedávala svou prdelku a láskyplně mu tiskla obličej na svá prsa.
 
 Další průběh jejich rozkošných pletek v nás vzbudil ten nejhlubší chtíč, a když oba spokojeně odpadli, někdo zhasl světlo. Následovalo mnoho smíchu a zmatků, jak se pánové snažili pochytat zbytek dam, a pak už jen polibky a vzdechy.
 
