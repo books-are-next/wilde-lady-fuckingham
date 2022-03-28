@@ -205,7 +205,7 @@
       "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
       "author": "Oscar Wilde",
       "publisher": "Městská knihovna v Praze",
-      "modified": "2022-02-09T14:57:36.766Z"
+      "modified": "2021-01-19T00:00:00.000Z"
     },
     "chapters": [
       {
@@ -365,6 +365,6 @@
       "user": "books-are-next",
       "repo": "wilde-lady-fuckingham"
     },
-    "generatedAt": 1644418657228
+    "generatedAt": 1648468194919
   }
 }

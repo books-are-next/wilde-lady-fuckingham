@@ -1,5 +1,6 @@
 ---
 title: Příběh Alice Marchmontové
+contentType: prose
 ---
 
   
