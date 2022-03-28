@@ -1,5 +1,6 @@
 ---
 title: Úvod
+contentType: prose
 ---
 
   
