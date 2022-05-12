@@ -14,7 +14,7 @@ meta:
   edition: beletrie
   publisherShort: mkp
 readingOrder:
-  - lady_fuckingham_002.html
+  - promo.html
   - lady_fuckingham_005.html
   - lady_fuckingham_006.html
   - lady_fuckingham_008.html
