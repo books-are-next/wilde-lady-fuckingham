@@ -7,11 +7,7 @@ contentType: prose
 
 
 
-  
-
-  
-
-  
+<section>
 
 Přeskočím detaily všech praktik, které jsme já a má souložnice skoro každou noc prováděly a jen letmo poznamenám, že dvě větší lesbičky by člověk široko daleko nenašel.
 
@@ -97,7 +93,9 @@ Setřela jsem mu ze zadnice krev, pak jsme mu daly pár skleniček vína a dovo
 
 Můžete se vsadit, že jsme se s Frederickem brzy znovu oddávali rozkoším, a to dokonce i s požehnáním jeho sestry; vypěstovala si ovšem také závislost na rákosce a jednou či dvakrát týdně nás zvala do svého pokoje na mrskací seance, při kterých jsme bývaly oběťmi já a Lucy; ovšem to pálení na našich zadcích jen umocňovalo náš prožitek, který jsme následně nacházely v náručí našeho společného milence.
 
-  
+</section>
+
+<section>
 
 Vánoce byly tady a společně s nimi i několik hostů, slečen a pánů našeho věku, kteří s námi přijeli strávit svátky. Naše společnost se skládala z pěti pánů a sedmi dam, když vynechám tetičku, která byla na naši zábavu moc stará a zaměstnávala se starostmi o dům, a tak jsme si každý den po večeři mohli dělat, co jen se nám zachtělo. Já a Alice jsme brzy proměnily našich pět kamarádek v lesbičky otevřené čemukoliv, zatímco Frederick připravoval své přátele mužského pohlaví. Na Nový rok slavil své osmnácté narozeniny a na tu noc jsme s Lucyinou pomocí připravovali v našem křídle opravdové orgie. Měli jsme dobrou zásobu sendvičů, ledu a šampaňského. Tetička nám nařídila, abychom byli v posteli nejpozději do jedné hodiny ranní, což jsme dodrželi, a po nádherném večeru plném tance a her, který v nás všech působil jen stále větší návaly vzrušení z toho, co nás teprve čekalo, neboť jsme všichni cítili, že to, co se bude odehrávat nahoře, bude teprve slastný zážitek, jsme se odebrali do ložnic.
 
@@ -134,3 +132,5 @@ Další průběh jejich rozkošných pletek v nás vzbudil ten nejhlubší cht�
 Ucítila jsem, jak mě obepíná silná paže a další ruka šmátrala po mé kundičce. Šepot v mém uchu zněl slovy: „Překrásné! Jste to opravdu vy, má drahá maličká Beatrice, nemohl jsem se zmýlit, jelikož jen ta vaše je v této společnosti bez jediného chloupku. Polibte mě, drahá, již se nemohu dočkat, až budu znovu uvnitř té vaší malé uzoučké záležitosti.“ Rty se setkaly ve svůdném polibku. Nacházeli jsme se v blízkosti Aliciny postele, můj společník mě na ni položil, vzal mé nohy do podpaždí a již brzy postupoval hluboko do mé toužící kundičky. Svírala jsem ho tak pevně, že se málem hned udělal, ale vzchopil se a razantními pohyby mě přivedl do dokonalého záchvatu lásky. Orgasmus následoval orgasmus a brzy jsme jich měli každý na šest za sebou a při posledním jsem se nedokázala udržet a vší tou slastí jsem se mu zakousla do ramene. Po chvíli se vzdálil, aniž by mi prozradil své jméno. Pokoj byl stále ponořen do tmy a bylo slyšet, jak se všichni stále pilně činí. Měla jsem potom ještě dva partnery, ale s každým jsem byla už jen jednou. Na tu noc nezapomenu, dokud budu na tomto světě dýchat.
 
 Dalšího dne jsem se s Fredovou pomocí dověděla, že můj první partner byl Charlie Vavasour, který si je jistý, že se během včerejších událostí dokonce propojil i se svou vlastní sestrou, což přiznala i ona, ačkoliv si myslela, že on o tom nic neví. Pokušení jejího bratra pro ni bylo příliš. Orgie z nás učinily tajné společenství přátel a kdokoliv se od té pověstné slavnosti jen zeptá: „Pamatujete na Fredovy narozeniny?“ může se svobodně oddávat milostným hrátkám s kýmkoliv, kdo šifru pochopí, a i já jsem od té doby zažila nejeden další podobně nádherný večírek.
+
+</section>

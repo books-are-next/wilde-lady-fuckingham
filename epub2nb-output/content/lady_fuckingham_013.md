@@ -7,11 +7,7 @@ contentType: prose
 
 
 
-  
-
-  
-
-  
+<section>
 
 Musím se nyní vrátit ke svému poměru s Lothairem. Slíbil mi, že se znovu setkáme za týden, a nemohla jsem se dočkat, až uslyším všechny zajímavosti o jeho cestě do Richmondu.
 
@@ -69,7 +65,9 @@ Nedokážu vlastně ani říct, jak to všechno dopadlo, protože to nebralo kon
 
 Slíbil jsem jim, že se neožením, a vyslovil jsem své přání, aby mě do svaté církve přijal sám svatý otec brzy po Vánocích, když budu na návštěvě v Římě. Tak získám spoustu času k provozování své hry. Dokážu jezuitům, že se dokážu vyrovnat lstem, které na mě zkoušeli, když jsem byl ještě mladý neznalý chlapec na návštěvě ve Vauxe. Mohu milovat Clare, když na to nemyslím, ale pokaždé, když na to jen vzpomenu, začnu ji se vším všudy nenávidět.“
 
-  
+</section>
+
+<section>
 
 Náš čas ve městě již byl skoro u konce, a tak na můj popud zorganizovali Bertram a St. Aldegonde urychleně Lothairovu iniciaci do Venušina kruhu.
 
@@ -119,7 +117,9 @@ Můj partner si mě přehodil přes koleno a jal se rozštípávat můj holý z
 
 St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svých manželek. Ani jeden z nich ovšem nevěnoval pozornost jejich zejícím kundičkám, neboť se oba oddávali šukání jejich zadnic, což si obě dámy s potěšením užívaly. Celou tu dráždivou scénu doplňovala drahá Corisande na piano všem známou melodií. Byla to píseň _Každej to dělá_.
 
-  
+</section>
+
+<section>
 
 > Dělá to šlechtic a dělá to chuďas,  
 > dělá to smíšek, dělá to pruďas.  
@@ -127,14 +127,18 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > drzý, slušný,  
 > autokrat i lid venkovský.
 
-  
+</section>
+
+<section>
 
 > Každej to dělá — pilně jak včela,  
 > žebrák i fešná fiflena.  
 > Ti co byli, ti co jsou —  
 > a ti, co přijdou, též budou.
 
-  
+</section>
+
+<section>
 
 > Starý to zkoušej,  
 > mladý to dělaj.  
@@ -143,7 +147,9 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > v krajích chladných nebo teplých.  
 > Každej to dělá, et cetera.
 
-  
+</section>
+
+<section>
 
 > Dělaj to ti, co jsou v právu,  
 > i ti s cenou na svou hlavu.  
@@ -152,7 +158,9 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > když jen objeví se chvíle vhodná.  
 > Každej to dělá, et cetera.
 
-  
+</section>
+
+<section>
 
 > Dělá to slimák i všichni brouci,  
 > holubi i lovní ptáci.  
@@ -161,7 +169,9 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > sloni i velryby, přeci.  
 > Každej to dělá, et cetera.
 
-  
+</section>
+
+<section>
 
 > Dělá to kohout se slepicí,  
 > červenky i kolibříci.  
@@ -170,7 +180,9 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > ropuchy v bahně za vesnicí.  
 > Každej to dělá, et cetera.
 
-  
+</section>
+
+<section>
 
 > Dělá to divočák i klokan,  
 > kukačka i zpěvný skřivan.  
@@ -179,7 +191,9 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > ve smečkách i v hustých rojích.  
 > Každej to dělá, et cetera.
 
-  
+</section>
+
+<section>
 
 > Dělá to komár, veš i včela,  
 > od rána až do večera.  
@@ -188,14 +202,18 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > to dělaj jako vzteklý zvíře.  
 > Každej to dělá, et cetera.
 
-  
+</section>
+
+<section>
 
 > Král to dělá s královnama,  
 > sultán, paša s huriskama.  
 > I španělský don má k tomu sklon,  
 > po celém světě je po tom shon.
 
-  
+</section>
+
+<section>
 
 > Každej to dělá, každej to dělá,  
 > šlechtic i ta nejmenší hnida.  
@@ -203,7 +221,9 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > i hovnivál  
 > to dělá a dělat bude dál!
 
-  
+</section>
+
+<section>
 
 Její průzračný melodický hlas se rozléhal salonem, a když přišlo na refrén, všichni se rozverně přidali. Nikdy předtím jsem nezažila tak vzrušivé a dekadentní výjevy jako ty, kterými jsem v tu chvíli byla obklopena. Když nás k naší nelibosti donutily poslední orgasmické výstřiky ukončit naše angažmá, nastoupili jsme, po chvilce odpočinku, zpět do kočárů a vyjeli k vévodovu sídlu, jako bychom toho odpoledne nic zvláštního než vyjížďku nezažili.
 
@@ -283,7 +303,9 @@ Největší zájem vzbuzovala Bertha s Charlesem, jelikož všichni ostatní by
 
 Konečně to bylo za námi. „A teď,“ řekla lady Bertha, „si odpočineme a nabereme alespoň trochu sil, abychom se pak mohli plně soustředit na Fanny a Bridget a řádně je připravili o panenství. Zatím vám budu vyprávět o jednom dobrodružství, které jsem zažila v Brenthamu pár měsíců po své svatbě.“
 
-  
+</section>
+
+<section>
 
 Asi víte, že St. Aldegonde chtěl zastupovat svou zemi v parlamentu a volby měly být již brzy, dokonce se povídalo, že rozpuštění parlamentu bylo přímo na spadnutí, takže jsme nesměli ztrácet čas. Náš plán bylo získat na svoji stranu jednoho movitého velkostatkáře, s jehož podporou už by bylo vše ostatní procházka růžovým sadem. Byl to jeden z mých dávných obdivovatelů a byl velmi zklamaný, když se dozvěděl o mém sňatku s Jeho Výsostí, a tak jsme si byli víc než jisti, že bude na truc všemi prostředky podporovat naši opozici. Jedné noci jsme se připravovali na kutě po naprosto skvostné mrdačce (je to krásné, když jste čerstvě oddaní), když mě najednou rozesmála jedna má skvělá myšlenka.
 
@@ -323,7 +345,9 @@ V tu chvíli hbitě vyskočil, zamkl dveře, pak ze šuplíku vytáhl malou kn�
 
 Má mise tedy byla úspěšná a Jeho Lordstvo se stalo členem parlamentu.
 
-  
+</section>
+
+<section>
 
 Historka lady Berthy nás všechny tak vzrušovala, že jsme se nemohli udržet a vzájemně jsme si pohrávali s našimi intimními partiemi. Ovšem jen co byl příběh u konce, popadli jsme Fanny a Bridget a… Ale je mi jasné, že číst si dokola o tom samém může být někdy mírně únavné, a proto jen letmo zmíním, že John a Charles připravili dívky o panenství ve velkolepém stylu, jelikož obě děvčata brzy pochopila, že jim již žádné další výmluvy nebudou tolerovány.
 
@@ -669,91 +693,117 @@ Po dvou až třech skleničkách měly oči otevřené dokořán. I ten nejmen�
 
 „Teď poslouchejte příběh o hrnčíři a ne abyste se smály, dokud celá báseň neskončí. Možná vám bude připadat trošku přidrzlá, ale není to nic, o čem by velké holky, jako vy, neměly vědět.“ A pak jsem začala:
 
-  
+</section>
+
+<section>
 
 > Mladý Hodge byl velký šibal,  
 > povoláním hrnčíř.  
 > Zamiloval se do Patty Price,  
 > služky farářovy.
 
-  
+</section>
+
+<section>
 
 > Tenhle Hodge měl pořád plné ruce  
 > svých hrnců, džbánů, pánví.  
 > Říkával: „Smutný osud má  
 > muž, který nemá ženy.
 
-  
+</section>
+
+<section>
 
 > Brzy si vezmu Patty Price  
 > do svého útulného domku.  
 > Sám farář totiž oddá nás,  
 > budem chcát do stejného hrnku.“
 
-  
+</section>
+
+<section>
 
 > Hodge pěkný hrnek udělal  
 > a přines’ ho svý lásce.  
 > Řek’: „Chtěl jsem ti ho ukázat,  
 > teda říct, že miluji tě.
 
-  
+</section>
+
+<section>
 
 > Teď jmenuj den, ten šťastný den,  
 > jehož noc přinese mi rozkoš.  
 > Kdy tvá kunda a můj čůrák v něm  
 > konečně smísí svou horkou moč.“
 
-  
+</section>
+
+<section>
 
 > Svoji byli již do týdne  
 > a Hodge měl velké štěstí,  
 > že hned při prvním šoustání,  
 > protrh’ blanku panenství.
 
-  
+</section>
+
+<section>
 
 > Pak usnul v jejím náručí,  
 > však probudil se náhle.  
 > A posadil se na posteli  
 > zděšením bílý nenadále.
 
-  
+</section>
+
+<section>
 
 > „Ach, lásko! Lásko! Měl jsem sen,  
 > sen, který poděsil mě zjevně.  
 > Oba jsme stáli v mé dílně  
 > a já objímal tě pevně.
 
-  
+</section>
+
+<section>
 
 > Pak líbal jsem tě na tváře,  
 > na rukou svých tě nosil.  
 > Až všechny své jsem hrníčky  
 > na malé kousky rozbil.“
 
-  
+</section>
+
+<section>
 
 > Patty se jen zasmála:  
 > „Žádné hrnce prasklé nejsou.  
 > Jen rozmrdalsʼ mi na kusy  
 > blanku mou panenskou.“
 
-  
+</section>
+
+<section>
 
 > A od těch dob až dodnes,  
 > Hodge prasklinu jí ucpává  
 > ptákem větším než cihla,  
 > však prasklina jí puká dál.
 
-  
+</section>
+
+<section>
 
 > A tak si služky odevšad,  
 > dávejte pozor na své nádobí.  
 > Neboť co protrhne mužný pyj,  
 > už se vám nikdy znovu nezhojí.
 
-  
+</section>
+
+<section>
 
 Zahodila jsem rukopis a dřív, než bys řekl švec, jsem měla prst v kundičce každé z nich. „Jaké překrásné nádobí to obě máte! Musím si vás položit na postel a uštědřit jim polibek. Co si myslíte o mém nádobí, pokrytém jemným kudrnatým mechem? Je to sice prasklá pánev, ale s tím už nic nenadělám, když mi ji můj manžel rozbil.“
 
@@ -773,13 +823,17 @@ Zatlačila jsem na ni, a konečně se jí rozvázal jazyk: „Zrovna jsme čeka
 
 „Dobře tedy, pane Charlie,“ zasmála jsem se, „ani by mi tolik nevadilo, kdybyste si mě někdy v budoucnu, až na to bude vhodná chvíle, osedlal. A slibuji, že vám dvěma drahouškům hned poreferuji, jaké to všechno bylo. Ale nejdřív vám přečtu ještě jednu píseň ze Strašidelného domu a zítra vám oběma seženu vlastní výtisk, abyste se ji mohly co nejdříve naučit zpívat.“
 
-  
+</section>
+
+<section>
 
 ŽÍT A POZNÁVAT
 
 Na melodii – Kapky brandy
 
-  
+</section>
+
+<section>
 
 > Když jsem byla ještě hodná malá holka, dámo,  
 > topořeným pyjům, ptákům rozuměla jsem pramálo,  
@@ -828,7 +882,9 @@ Na melodii – Kapky brandy
 > A doufám, že se, drahý pane,  
 > pak prošukám i rájem.“
 
-  
+</section>
+
+<section>
 
 Když jsme se ráno vzbudily, bylo už moc pozdě na zopakování našich včerejších lesbických radovánek, a tak jsem je rychle vzbudila, aby mi mohly přinést snídani, a slíbila jim, že se během dne podívám Charliemu na zoubek.
 
@@ -1069,3 +1125,5 @@ Vydrželo nám to snad až do páté hodiny ranní. Šoustali jsme, kouřili, l�
 Konečně nás námořníci museli opustit a musím přiznat, že to byla ta nejchlípnější orgie, které jsem se kdy zúčastnila, jelikož jsem hned po jejím sladkém konci upadla do tak chatrného stavu, že ani můj pobyt na Madeiře už ničemu pomoci nedokázal, a následujícího května jsem se vrátila do Anglie, kde se o mě od té doby stále a s láskou staráš ty, nejdražší Waltře, a tudíž dobře víš, jakou rychlostí mě tohle mé požitkářství přivádí do hrobu. Ach! Kdybych jen měla aspoň tolik sil, abych si to mohla ještě naposledy užít, byl bys právě ty mým chrabrým rytířem v bitvě slasti a rozkoše, které již se nikdy nedožiji. Modlím se k Bohu, abych mohla zemřít na vrcholu, ve chvíli, kdy tvá samotná duše bude stříkat do mých vnitřností, ale běda! již to není možné! Přesto, existuje-li na onom světě blaženost, věřím, že to není nic jiného než věčná mrdačka.
 
 Amen! Déle již své pero neudržím.
+
+</section>
