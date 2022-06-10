@@ -3,11 +3,7 @@ title: Úvod
 contentType: prose
 ---
 
-  
-
 Drazí čtenáři,
-
-  
 
 snad není ani v nejmenším třeba se omlouvat za otištění následujícího nadmíru erotického a peprného vyprávění mladé patricijské dámy, jejíž dobrodružství uspokojí každého nefalšovaného milovníka dráždivého čtení.
 

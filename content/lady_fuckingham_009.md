@@ -13,14 +13,6 @@ contentType: prose
 
   
 
-  
-
-  
-
-  
-
-  
-
 Přeskočím detaily všech praktik, které jsme já a má souložnice skoro každou noc prováděly a jen letmo poznamenám, že dvě větší lesbičky by člověk široko daleko nenašel.
 
 Muselo to počkat až do vánočních prázdnin, než jsem byla představena Frederickovi, kterého jsme společně vybraly, aby mě připravil o věneček, což, jak jsme se shodly, neměla být vůbec nijak komplikovaná operace, jelikož vším tím prstěním a také hojným využíváním Aliciny kožené štangle salámu, která, jak jsem se dozvěděla, byla vytvořena především k jejímu uspokojení, byla moje kundička perfektně vycvičená a dalo se dokonce i pozorovat, jak na ní pomalu raší hnědé kudrlinky. Bylo mi téměř třináct let, když jsme jednoho mrazivého prosincového rána přijeli k internátu, kde nás již vítala tetička, ovšem mé oči hned padly na mladistvou, leč mužnou postavu, která jí stála po boku. Frederick byl pravým opakem své sestry, co se rysů a pleti týkalo, beztak to byl ovšem velmi pohledný mladík sedmnácti či osmnácti let.

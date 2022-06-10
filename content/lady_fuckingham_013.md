@@ -13,14 +13,6 @@ contentType: prose
 
   
 
-  
-
-  
-
-  
-
-  
-
 Musím se nyní vrátit ke svému poměru s Lothairem. Slíbil mi, že se znovu setkáme za týden, a nemohla jsem se dočkat, až uslyším všechny zajímavosti o jeho cestě do Richmondu.
 
 Obědvali jsme znovu v hotelu Bristol a byl stejně rozohněný a impulzivní jako tenkrát, ovšem tentokrát k tomu nebylo třeba afrodiziakum. „Ach, Beatrice,“ řekl, když jsme vysílení leželi na sofa po celé sérii lahodných styků, „nedokážu ani z půli vyjádřit všechen vděk a oddanost, kterou k tobě cítím za to, že jsi mě tak nesobecky postoupila těm dvěma jeptiškám, i když jsi mě sama mohla učinit víc než šťastným. Ale první mi vyprávěj o tom vašem Společenství lásky, kterému jsi slíbila mě představit, a pak budeš moct vyslechnout vyprávění o mém dobrodružství.“
@@ -127,16 +119,22 @@ Můj partner si mě přehodil přes koleno a jal se rozštípávat můj holý z
 
 St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svých manželek. Ani jeden z nich ovšem nevěnoval pozornost jejich zejícím kundičkám, neboť se oba oddávali šukání jejich zadnic, což si obě dámy s potěšením užívaly. Celou tu dráždivou scénu doplňovala drahá Corisande na piano všem známou melodií. Byla to píseň _Každej to dělá_.
 
+  
+
 > Dělá to šlechtic a dělá to chuďas,  
 > dělá to smíšek, dělá to pruďas.  
 > Černý, bílý,  
 > drzý, slušný,  
 > autokrat i lid venkovský.
 
+  
+
 > Každej to dělá — pilně jak včela,  
 > žebrák i fešná fiflena.  
 > Ti co byli, ti co jsou —  
 > a ti, co přijdou, též budou.
+
+  
 
 > Starý to zkoušej,  
 > mladý to dělaj.  
@@ -145,12 +143,16 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > v krajích chladných nebo teplých.  
 > Každej to dělá, et cetera.
 
+  
+
 > Dělaj to ti, co jsou v právu,  
 > i ti s cenou na svou hlavu.  
 > Také jeptiška a kněz,  
 > se rádi nechaj svést,  
 > když jen objeví se chvíle vhodná.  
 > Každej to dělá, et cetera.
+
+  
 
 > Dělá to slimák i všichni brouci,  
 > holubi i lovní ptáci.  
@@ -159,12 +161,16 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > sloni i velryby, přeci.  
 > Každej to dělá, et cetera.
 
+  
+
 > Dělá to kohout se slepicí,  
 > červenky i kolibříci.  
 > Medvěd grizzly  
 > s medvědicí,  
 > ropuchy v bahně za vesnicí.  
 > Každej to dělá, et cetera.
+
+  
 
 > Dělá to divočák i klokan,  
 > kukačka i zpěvný skřivan.  
@@ -173,6 +179,8 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > ve smečkách i v hustých rojích.  
 > Každej to dělá, et cetera.
 
+  
+
 > Dělá to komár, veš i včela,  
 > od rána až do večera.  
 > I žížaly v díře  
@@ -180,16 +188,22 @@ St. Aldegonde a Montairy si po řádném zlískání pro změnu užívali svýc
 > to dělaj jako vzteklý zvíře.  
 > Každej to dělá, et cetera.
 
+  
+
 > Král to dělá s královnama,  
 > sultán, paša s huriskama.  
 > I španělský don má k tomu sklon,  
 > po celém světě je po tom shon.
+
+  
 
 > Každej to dělá, každej to dělá,  
 > šlechtic i ta nejmenší hnida.  
 > S korunou král,  
 > i hovnivál  
 > to dělá a dělat bude dál!
+
+  
 
 Její průzračný melodický hlas se rozléhal salonem, a když přišlo na refrén, všichni se rozverně přidali. Nikdy předtím jsem nezažila tak vzrušivé a dekadentní výjevy jako ty, kterými jsem v tu chvíli byla obklopena. Když nás k naší nelibosti donutily poslední orgasmické výstřiky ukončit naše angažmá, nastoupili jsme, po chvilce odpočinku, zpět do kočárů a vyjeli k vévodovu sídlu, jako bychom toho odpoledne nic zvláštního než vyjížďku nezažili.
 
@@ -655,65 +669,91 @@ Po dvou až třech skleničkách měly oči otevřené dokořán. I ten nejmen�
 
 „Teď poslouchejte příběh o hrnčíři a ne abyste se smály, dokud celá báseň neskončí. Možná vám bude připadat trošku přidrzlá, ale není to nic, o čem by velké holky, jako vy, neměly vědět.“ A pak jsem začala:
 
+  
+
 > Mladý Hodge byl velký šibal,  
 > povoláním hrnčíř.  
 > Zamiloval se do Patty Price,  
 > služky farářovy.
+
+  
 
 > Tenhle Hodge měl pořád plné ruce  
 > svých hrnců, džbánů, pánví.  
 > Říkával: „Smutný osud má  
 > muž, který nemá ženy.
 
+  
+
 > Brzy si vezmu Patty Price  
 > do svého útulného domku.  
 > Sám farář totiž oddá nás,  
 > budem chcát do stejného hrnku.“
+
+  
 
 > Hodge pěkný hrnek udělal  
 > a přines’ ho svý lásce.  
 > Řek’: „Chtěl jsem ti ho ukázat,  
 > teda říct, že miluji tě.
 
+  
+
 > Teď jmenuj den, ten šťastný den,  
 > jehož noc přinese mi rozkoš.  
 > Kdy tvá kunda a můj čůrák v něm  
 > konečně smísí svou horkou moč.“
+
+  
 
 > Svoji byli již do týdne  
 > a Hodge měl velké štěstí,  
 > že hned při prvním šoustání,  
 > protrh’ blanku panenství.
 
+  
+
 > Pak usnul v jejím náručí,  
 > však probudil se náhle.  
 > A posadil se na posteli  
 > zděšením bílý nenadále.
+
+  
 
 > „Ach, lásko! Lásko! Měl jsem sen,  
 > sen, který poděsil mě zjevně.  
 > Oba jsme stáli v mé dílně  
 > a já objímal tě pevně.
 
+  
+
 > Pak líbal jsem tě na tváře,  
 > na rukou svých tě nosil.  
 > Až všechny své jsem hrníčky  
 > na malé kousky rozbil.“
+
+  
 
 > Patty se jen zasmála:  
 > „Žádné hrnce prasklé nejsou.  
 > Jen rozmrdalsʼ mi na kusy  
 > blanku mou panenskou.“
 
+  
+
 > A od těch dob až dodnes,  
 > Hodge prasklinu jí ucpává  
 > ptákem větším než cihla,  
 > však prasklina jí puká dál.
 
+  
+
 > A tak si služky odevšad,  
 > dávejte pozor na své nádobí.  
 > Neboť co protrhne mužný pyj,  
 > už se vám nikdy znovu nezhojí.
+
+  
 
 Zahodila jsem rukopis a dřív, než bys řekl švec, jsem měla prst v kundičce každé z nich. „Jaké překrásné nádobí to obě máte! Musím si vás položit na postel a uštědřit jim polibek. Co si myslíte o mém nádobí, pokrytém jemným kudrnatým mechem? Je to sice prasklá pánev, ale s tím už nic nenadělám, když mi ji můj manžel rozbil.“
 
@@ -733,9 +773,13 @@ Zatlačila jsem na ni, a konečně se jí rozvázal jazyk: „Zrovna jsme čeka
 
 „Dobře tedy, pane Charlie,“ zasmála jsem se, „ani by mi tolik nevadilo, kdybyste si mě někdy v budoucnu, až na to bude vhodná chvíle, osedlal. A slibuji, že vám dvěma drahouškům hned poreferuji, jaké to všechno bylo. Ale nejdřív vám přečtu ještě jednu píseň ze Strašidelného domu a zítra vám oběma seženu vlastní výtisk, abyste se ji mohly co nejdříve naučit zpívat.“
 
+  
+
 ŽÍT A POZNÁVAT
 
 Na melodii – Kapky brandy
+
+  
 
 > Když jsem byla ještě hodná malá holka, dámo,  
 > topořeným pyjům, ptákům rozuměla jsem pramálo,  
@@ -783,6 +827,8 @@ Na melodii – Kapky brandy
 > dokud se mnou nebude ámen,  
 > A doufám, že se, drahý pane,  
 > pak prošukám i rájem.“
+
+  
 
 Když jsme se ráno vzbudily, bylo už moc pozdě na zopakování našich včerejších lesbických radovánek, a tak jsem je rychle vzbudila, aby mi mohly přinést snídani, a slíbila jim, že se během dne podívám Charliemu na zoubek.
 

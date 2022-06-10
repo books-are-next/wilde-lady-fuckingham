@@ -3,8 +3,6 @@ title: Příběh Alice Marchmontové
 contentType: prose
 ---
 
-  
-
 Druhý den jsem byla tak nedočkavá. Jen co jsme se setkaly v naší útulné svatyni, vyhrkla jsem: „A rychle do postele, hořím zvědavostí, vyprávěj mi už ten svůj příběh, Alice.“
 
 „Brzy se dočkáš jak příběhu, tak mých doteků, když mě jen necháš v klidu se svléknout. Beztak nemohu hned skočit do postele, musím nejdřív zkontrolovat svoje soukromé kudrlinky. Co na ně říkáš Beatrice? Sundej si košilku, porovnáme si kundičky,“ řekla a vmžiku se svlečená prohlížela před zrcadlem. Brzy jsem zaujala místo po jejím boku. „Máš tak překrásně našpulenou malou štěrbinku, Beatrice,“ pronesla a poplácala mě po _mons veneris_. Jsme tak překrásné protiklady. Ta má je světle blonďatá a tvoje bude brunetka. Podívej, mé chloupky už povyrostly na půl palce.“ Donekonečna protahovala svoje vzrušivé hrátky, dokud mi nedošla trpělivost. Hodila jsem na sebe znovu noční košilku, skočila jsem zpátky do postele a řekla jsem, že to určitě byly jenom samé vý­mysly, že vůbec žádný příběh neexistuje a že se s ní odmítám znovu milovat, dokud neutěší mou zvědavost.
