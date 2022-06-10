@@ -8,8 +8,8 @@
   "edition": "beletrie",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "wilde-lady-fuckingham-dd0145d",
-  "revision": "dd0145d",
+  "identifier": "wilde-lady-fuckingham-bf630d8",
+  "revision": "bf630d8",
   "readingOrder": [
     "promo.html",
     "lady_fuckingham_005.html",
@@ -21,8 +21,8 @@
     "colophon.html"
   ],
   "generatedAt": {
-    "date": "Thu May 12 2022 10:38:38 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1652351918210
+    "date": "Fri Jun 10 2022 14:20:20 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1654870820649
   },
   "documents": [
     {
@@ -160,9 +160,9 @@
     {
       "title": "Tiráž",
       "file": "colophon.html",
-      "words": 123,
-      "chars": 826,
-      "ideas": 16,
+      "words": 119,
+      "chars": 780,
+      "ideas": 15,
       "role": "colophon",
       "order": null,
       "prev": "lady_fuckingham_013.html",
@@ -180,9 +180,9 @@
   ],
   "totals": {
     "all": {
-      "words": 37046,
-      "chars": 222378,
-      "ideas": 845
+      "words": 37042,
+      "chars": 222332,
+      "ideas": 844
     },
     "chapters": {
       "words": 36917,
