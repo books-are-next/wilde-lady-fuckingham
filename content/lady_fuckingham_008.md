@@ -3,6 +3,8 @@ title: Příběh Alice Marchmontové
 contentType: prose
 ---
 
+<section>
+
 Druhý den jsem byla tak nedočkavá. Jen co jsme se setkaly v naší útulné svatyni, vyhrkla jsem: „A rychle do postele, hořím zvědavostí, vyprávěj mi už ten svůj příběh, Alice.“
 
 „Brzy se dočkáš jak příběhu, tak mých doteků, když mě jen necháš v klidu se svléknout. Beztak nemohu hned skočit do postele, musím nejdřív zkontrolovat svoje soukromé kudrlinky. Co na ně říkáš Beatrice? Sundej si košilku, porovnáme si kundičky,“ řekla a vmžiku se svlečená prohlížela před zrcadlem. Brzy jsem zaujala místo po jejím boku. „Máš tak překrásně našpulenou malou štěrbinku, Beatrice,“ pronesla a poplácala mě po _mons veneris_. Jsme tak překrásné protiklady. Ta má je světle blonďatá a tvoje bude brunetka. Podívej, mé chloupky už povyrostly na půl palce.“ Donekonečna protahovala svoje vzrušivé hrátky, dokud mi nedošla trpělivost. Hodila jsem na sebe znovu noční košilku, skočila jsem zpátky do postele a řekla jsem, že to určitě byly jenom samé vý­mysly, že vůbec žádný příběh neexistuje a že se s ní odmítám znovu milovat, dokud neutěší mou zvědavost.
@@ -138,3 +140,5 @@ Leželi nehybně a vychutnávali svou vzájemnou tělesnou blízkost. Pan Willi
 Ovšem nepředvídatelné okolnosti zčistajasna zabránily, aby uskutečnili své plány na štěstí. Tentýž den doporučil lékař Alicinu otci pobyt na jihu Evropy a hned následujícího rána se vydali společně i s komorníkem do města, aby zařídili vše potřebné. Alicina matka se k nim měla připojit, jen co budou obě děti náležitě umístěny do školy.
 
 Lucy a její mladá paní se navzájem utěšovaly, jak jen to dané podmínky dovolovaly, ovšem během několika dní převzala péči nad domem tetička a Alice byla odeslána právě na tuto školu a je nyní ve tvých rukou, drahá Beatrice, zatímco můj bratr je nyní na vysoké škole a vídáme se jen o prázdninách. Požádáš své poručníky, drahá, aby ti dovolili strávit příští prázdniny se mnou? Představím ti Fredericka, jenž, nemýlím-li se, je stejného ražení jako jeho sestřička.
+
+</section>

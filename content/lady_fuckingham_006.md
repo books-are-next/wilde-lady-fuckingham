@@ -7,11 +7,7 @@ contentType: prose
 
 
 
-  
-
-  
-
-  
+<section>
 
 Drahý Waltře,
 
@@ -72,3 +68,5 @@ Další noc jsme se znovu oddávaly naší lascivní zábavě, když odněkud na
 Jen co jsme se znovu alespoň na chvíli zklidnily, zeptala jsem se Alice, co tím myslela, když o mně mluvila jako o svém drahém chlapci.
 
 „Ach, Beatrice,“ opověděla, „jsem už příliš ospalá, ale zítra v noci ti budu vyprávět svůj příběh a vysvětlím ti, jak je možné, že moje kundička dokáže tak dobře přijmout tu koženou věc, zatímco ta tvoje prozatím ne; budeš si pak připadat ještě více osvícena filozofií života, drahoušku. A teď mě polib a pojďme pro dnešek už na kutě.“
+
+</section>
