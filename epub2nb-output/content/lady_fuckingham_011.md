@@ -6,7 +6,6 @@ contentType: prose
 
 
 
-
 <section>
 
 Vrátily jsme se do školy a já si pilně dopisovala s Frederickem. Naše lístky jsme přikládali k Alicině korespondenci. Čas se táhnul, ale asi si dokážete představit, jak si jej my dívky dovedeme obratně krátit. Několik následujících let teď přeskočím, abyste mě našli ve věku sedmnácti let. Moji poručníci se již nemohou dočkat, až mě budou moct představit u dvora, kde se podle nich určitě někomu zalíbím, a zbaví se tak nadobro své svěřenkyně.

@@ -6,7 +6,6 @@ contentType: prose
 
 
 
-
 <section>
 
 Přeskočím detaily všech praktik, které jsme já a má souložnice skoro každou noc prováděly a jen letmo poznamenám, že dvě větší lesbičky by člověk široko daleko nenašel.

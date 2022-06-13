@@ -6,7 +6,6 @@ contentType: prose
 
 
 
-
 <section>
 
 Musím se nyní vrátit ke svému poměru s Lothairem. Slíbil mi, že se znovu setkáme za týden, a nemohla jsem se dočkat, až uslyším všechny zajímavosti o jeho cestě do Richmondu.
@@ -842,11 +841,11 @@ Na melodii – Kapky brandy
 > neměla jsem potuchy, jak slastná umí býti,  
 > a řeči o šoustání mě často nudívaly k smrti.  
 > Však teď o kolik chytřejší jsem ve svém moudrém  
->                                                                                      stáří!  
+>             stáří!  
 > Nohy roztáhnu každému, kdo se mnou chce se  
->                                                                                      pářit,  
+>             pářit,  
 > můj stud a skromnost společně vzaly nohy na  
->                                                                                 ramena,  
+>             ramena,  
 > a šoustání teď oddávám se jak smyslů zbavená!  
 > Ze všech věcí nejradši mám v zadku tuhý pták,  
 > i když mnoha ptáků najednou by člověk měl se bát.  
@@ -856,17 +855,17 @@ Na melodii – Kapky brandy
 > i v neděli já ze šoustání celičký den teču.  
 > Nesuďte mě, přátelé, já promrdám i šábes!  
 > Výjimečně jenom v pondělí aspoň s análem je  
->                                                                                    ámen.  
+>             ámen.  
 > Ať už je horký nebo studený, ptákem já nepohrdnu,  
 > Chlapům všech věků i tvarů vzkazuju:  
 > Pro vaše péra vždycky zvlhnu!  
 > Na vrcholu se udržím klidně i přes hodinu,  
 > má kunda žhne jen pro šukec a pro šukec i zhynu.  
 > A tomu, kdo nahlas vyřkne, že snad: „Šukání je  
->                                                                                   zločin,“  
+>             zločin,“  
 > tomu já klidně řeknu do očí, že právě křivě svědčil.  
 > Vražte mi do každé ruky pyj a mou kundu stočte  
->                                                                                   na jih.  
+>             na jih.  
 > I do zadku jeden pořádný mi vryj,  
 > mé díry dychtí jenom po nich.  
 > Budu je šoustat, kouřit, laskat,  
