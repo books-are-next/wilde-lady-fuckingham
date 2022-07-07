@@ -21,7 +21,7 @@ readingOrder:
   - lady_fuckingham_009.html
   - lady_fuckingham_011.html
   - lady_fuckingham_013.html
-  - colophon.html
+  - about.html
 tocBase:
   - id: section-1
     children:

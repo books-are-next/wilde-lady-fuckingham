@@ -62,7 +62,7 @@
             "filename": "lady_fuckingham_003.md",
             "xhtml": "lady_fuckingham_003.xhtml",
             "id": 2,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
@@ -73,7 +73,7 @@
             "filename": "lady_fuckingham_004.md",
             "xhtml": "lady_fuckingham_004.xhtml",
             "id": 3,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
@@ -205,7 +205,7 @@
             "filename": "lady_fuckingham_015.md",
             "xhtml": "lady_fuckingham_015.xhtml",
             "id": 14,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": true,
             "hiddenTitle": false,
@@ -383,6 +383,6 @@
       "user": "books-are-next",
       "repo": "wilde-lady-fuckingham"
     },
-    "generatedAt": 1655980105140
+    "generatedAt": 1657182712830
   }
 }
