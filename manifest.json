@@ -8,8 +8,8 @@
   "edition": "beletrie",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "wilde-lady-fuckingham-b3f3ff2",
-  "revision": "b3f3ff2",
+  "identifier": "wilde-lady-fuckingham-150ea94",
+  "revision": "150ea94",
   "readingOrder": [
     "promo.html",
     "lady_fuckingham_005.html",
@@ -21,8 +21,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Thu Sep 29 2022 21:38:44 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1664487524632
+    "date": "Sat Oct 01 2022 16:08:01 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1664640481137
   },
   "documents": [
     {
